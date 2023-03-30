@@ -1,4 +1,4 @@
-# IC 的职业对话指南——有目的的职业规划的 25 个技巧|第一轮回顾
+# IC 的职业对话指南——有目的的职业规划的 25 个技巧
 
 > 原文：<https://review.firstround.com/the-ics-guide-to-driving-career-conversations-25-tips-for-purposeful-career-planning>
 

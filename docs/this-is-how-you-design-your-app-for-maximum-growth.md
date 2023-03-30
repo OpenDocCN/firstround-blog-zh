@@ -1,4 +1,4 @@
-# 这就是你如何设计你的移动应用以获得最大增长|第一轮审核
+# 这就是你如何设计你的移动应用以获得最大增长
 
 > 原文：<https://review.firstround.com/this-is-how-you-design-your-app-for-maximum-growth>
 

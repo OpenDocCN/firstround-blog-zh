@@ -1,4 +1,4 @@
-# 如何让工程实习生对你的创业有效|第一轮回顾
+# 如何让工程实习生对你的创业有效
 
 > 原文：<https://review.firstround.com/Make-Engineering-Interns-Truly-Effective-with-This-Startups-Program>
 

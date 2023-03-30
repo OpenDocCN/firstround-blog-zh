@@ -1,4 +1,4 @@
-# 六种无摩擦的方式帮助你的网络帮助你|第一轮评论
+# 六种无摩擦的方式帮助你的网络帮助你
 
 > 原文：<https://review.firstround.com/6-Friction-Free-Ways-to-Leverage-Your-Network-to-Maximize-Your-Potential>
 

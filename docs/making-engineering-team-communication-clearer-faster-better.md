@@ -1,4 +1,4 @@
-# 让工程团队的沟通更清晰、更快速、更好|第一轮评审
+# 让工程团队的沟通更清晰、更快速、更好
 
 > 原文：<https://review.firstround.com/making-engineering-team-communication-clearer-faster-better>
 

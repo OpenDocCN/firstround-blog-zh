@@ -1,4 +1,4 @@
-# 让自我保健成为你的竞争优势的 6 篇必读文章|第一轮回顾
+# 让自我保健成为你的竞争优势的 6 篇必读文章
 
 > 原文：<https://review.firstround.com/our-6-must-reads-to-make-self-care-your-competitive-advantage>
 

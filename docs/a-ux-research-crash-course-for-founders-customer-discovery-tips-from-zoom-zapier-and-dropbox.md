@@ -1,4 +1,4 @@
-# 面向创始人的 UX 研究速成班——来自 Zoom、Zapier 和 Dropbox 的客户发现技巧|第一轮评论
+# 面向创始人的 UX 研究速成班——来自 Zoom、Zapier 和 Dropbox 的客户发现技巧
 
 > 原文：<https://review.firstround.com/a-ux-research-crash-course-for-founders-customer-discovery-tips-from-zoom-zapier-and-dropbox>
 

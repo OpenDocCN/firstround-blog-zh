@@ -1,4 +1,4 @@
-# 新创企业如何赢得公关——20 年通信职业生涯的建议|第一轮回顾
+# 新创企业如何赢得公关——20 年通信职业生涯的建议
 
 > 原文：<https://review.firstround.com/how-new-startups-can-win-at-pr-advice-from-a-20-year-comms-career>
 

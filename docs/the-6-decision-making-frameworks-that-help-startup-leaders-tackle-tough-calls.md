@@ -1,4 +1,4 @@
-# 帮助创业领导者应对棘手问题的 6 个决策框架|第一轮回顾
+# 帮助创业领导者应对棘手问题的 6 个决策框架
 
 > 原文：<https://review.firstround.com/the-6-decision-making-frameworks-that-help-startup-leaders-tackle-tough-calls>
 

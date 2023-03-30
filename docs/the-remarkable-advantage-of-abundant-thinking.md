@@ -1,4 +1,4 @@
-# 思维丰富的显著优势|首轮复习
+# 思维丰富的显著优势
 
 > 原文：<https://review.firstround.com/the-remarkable-advantage-of-abundant-thinking>
 

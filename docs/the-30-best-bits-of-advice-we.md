@@ -1,4 +1,4 @@
-# 我们在播客中听到的 30 条最佳建议(目前为止)|第一轮评论
+# 我们在播客中听到的 30 条最佳建议(目前为止)
 
 > 原文：<https://review.firstround.com/the-30-best-bits-of-advice-we>
 

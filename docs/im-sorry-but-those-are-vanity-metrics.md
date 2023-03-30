@@ -1,4 +1,4 @@
-# 很抱歉，但这些是虚荣心指标|第一轮评审
+# 很抱歉，但这些是虚荣心指标
 
 > 原文：<https://review.firstround.com/im-sorry-but-those-are-vanity-metrics>
 

@@ -1,4 +1,4 @@
-# 绩效评估的力量:使用这个系统成为更好的经理|第一轮评估
+# 绩效评估的力量:使用这个系统成为更好的经理
 
 > 原文：<https://review.firstround.com/the-power-of-performance-reviews-use-this-system-to-become-a-better-manager>
 

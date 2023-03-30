@@ -1,4 +1,4 @@
-# 建议比以往任何时候都更加重要，也更加势不可挡。以下是创始人如何消除噪音|第一轮评估
+# 建议比以往任何时候都更加重要，也更加势不可挡。以下是创始人如何消除噪音
 
 > 原文：<https://review.firstround.com/advice-is-more-important-and-overwhelming-than-ever-heres-how-founders-can-cut-through-the-noise>
 

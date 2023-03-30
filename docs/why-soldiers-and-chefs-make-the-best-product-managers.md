@@ -1,4 +1,4 @@
-# 为什么厨师和士兵是最好的产品经理|第一轮回顾
+# 为什么厨师和士兵是最好的产品经理
 
 > 原文：<https://review.firstround.com/why-soldiers-and-chefs-make-the-best-product-managers>
 

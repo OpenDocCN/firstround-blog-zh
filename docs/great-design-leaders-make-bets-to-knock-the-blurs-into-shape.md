@@ -1,4 +1,4 @@
-# 进行设计赌注，将模糊的东西敲入形状|第一轮评审
+# 进行设计赌注，将模糊的东西敲入形状
 
 > 原文：<https://review.firstround.com/great-design-leaders-make-bets-to-knock-the-blurs-into-shape>
 

@@ -1,4 +1,4 @@
-# 如何建立所有权文化，以及来自 Plaid & Dropbox 的其他工程领导技巧|第一轮评审
+# 如何建立所有权文化，以及来自 Plaid & Dropbox 的其他工程领导技巧
 
 > 原文：<https://review.firstround.com/how-to-build-a-culture-of-ownership-and-other-engineering-leadership-tips-from-plaid-and-dropbox>
 

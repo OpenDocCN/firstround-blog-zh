@@ -1,4 +1,4 @@
-# 这就是人们离开你公司的原因|第一轮评估
+# 这就是人们离开你公司的原因
 
 > 原文：<https://review.firstround.com/This-is-Why-People-Leave-Your-Company>
 

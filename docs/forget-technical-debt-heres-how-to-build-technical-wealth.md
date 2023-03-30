@@ -1,4 +1,4 @@
-# 忘记技术债务——以下是如何积累技术财富|第一轮回顾
+# 忘记技术债务——以下是如何积累技术财富
 
 > 原文：<https://review.firstround.com/forget-technical-debt-heres-how-to-build-technical-wealth>
 

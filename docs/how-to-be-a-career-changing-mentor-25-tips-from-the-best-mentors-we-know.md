@@ -1,4 +1,4 @@
-# 如何成为改变职业的导师——来自我们所知的最佳导师的 25 条建议|第一轮回顾
+# 如何成为改变职业的导师——来自我们所知的最佳导师的 25 条建议
 
 > 原文：<https://review.firstround.com/how-to-be-a-career-changing-mentor-25-tips-from-the-best-mentors-we-know>
 

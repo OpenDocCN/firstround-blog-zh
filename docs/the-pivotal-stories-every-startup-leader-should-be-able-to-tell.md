@@ -1,4 +1,4 @@
-# 每个初创企业领导者应该能够讲述的关键故事|第一轮回顾
+# 每个初创企业领导者应该能够讲述的关键故事
 
 > 原文：<https://review.firstround.com/the-pivotal-stories-every-startup-leader-should-be-able-to-tell>
 

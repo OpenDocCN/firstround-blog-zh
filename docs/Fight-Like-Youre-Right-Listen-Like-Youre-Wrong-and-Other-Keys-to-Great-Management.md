@@ -1,4 +1,4 @@
-# 像你是对的那样战斗，像你是错的那样倾听，以及其他伟大管理的关键|第一轮回顾
+# 像你是对的那样战斗，像你是错的那样倾听，以及其他伟大管理的关键
 
 > 原文：<https://review.firstround.com/Fight-Like-Youre-Right-Listen-Like-Youre-Wrong-and-Other-Keys-to-Great-Management>
 

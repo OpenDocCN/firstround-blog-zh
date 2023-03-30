@@ -1,4 +1,4 @@
-# 这就是有效的首席技术官拥抱变革的方式|第一轮回顾
+# 这就是有效的首席技术官拥抱变革的方式
 
 > 原文：<https://review.firstround.com/this-is-how-effective-ctos-embrace-change>
 

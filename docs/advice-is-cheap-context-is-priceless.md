@@ -1,4 +1,4 @@
-# 建议是廉价的——背景是无价的|第一轮评论
+# 建议是廉价的——背景是无价的
 
 > 原文：<https://review.firstround.com/advice-is-cheap-context-is-priceless>
 

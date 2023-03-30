@@ -1,4 +1,4 @@
-# Instacart 如何利用数据制定定制薪酬战略|首轮回顾
+# Instacart 如何利用数据制定定制薪酬战略
 
 > 原文：<https://review.firstround.com/how-instacart-uses-data-to-craft-a-bespoke-comp-strategy>
 

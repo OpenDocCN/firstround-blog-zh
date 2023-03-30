@@ -1,4 +1,4 @@
-# 莱斯利定律:当小遇到大，小(几乎)总是赢|第一轮回顾
+# 莱斯利定律:当小遇到大，小(几乎)总是赢
 
 > 原文：<https://review.firstround.com/leslies-law-when-small-meets-large-small-almost-always-wins>
 

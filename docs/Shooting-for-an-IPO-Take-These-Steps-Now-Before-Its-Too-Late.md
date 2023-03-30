@@ -1,4 +1,4 @@
-# 争取首次公开募股？趁还来得及，现在就采取这些步骤|第一轮审核
+# 争取首次公开募股？趁还来得及，现在就采取这些步骤
 
 > 原文：<https://review.firstround.com/Shooting-for-an-IPO-Take-These-Steps-Now-Before-Its-Too-Late>
 

@@ -1,4 +1,4 @@
-# 高影响力经理的 25 个微习惯|第一轮回顾
+# 高影响力经理的 25 个微习惯
 
 > 原文：<https://review.firstround.com/the-25-micro-habits-of-high-impact-managers>
 

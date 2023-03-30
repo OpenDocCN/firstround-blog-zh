@@ -1,4 +1,4 @@
-# 伟大规划过程的秘密 Airbnb 和 Eventbrite 的经验|第一轮回顾
+# 伟大规划过程的秘密 Airbnb 和 Eventbrite 的经验
 
 > 原文：<https://review.firstround.com/the-secret-to-a-great-planning-process-lessons-from-airbnb-and-eventbrite>
 

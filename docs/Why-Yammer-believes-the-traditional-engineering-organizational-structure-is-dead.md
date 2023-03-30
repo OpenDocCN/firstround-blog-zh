@@ -1,4 +1,4 @@
-# 为什么 Yammer 认为传统的工程组织结构已经死亡|第一轮回顾
+# 为什么 Yammer 认为传统的工程组织结构已经死亡
 
 > 原文：<https://review.firstround.com/Why-Yammer-believes-the-traditional-engineering-organizational-structure-is-dead>
 

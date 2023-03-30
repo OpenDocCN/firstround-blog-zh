@@ -1,4 +1,4 @@
-# 使用这些讲故事的技巧，让你的筹款从平庸变得令人难忘|第一轮回顾
+# 使用这些讲故事的技巧，让你的筹款从平庸变得令人难忘
 
 > 原文：<https://review.firstround.com/Tell-Stories-Like-This-to-Take-Your-Fundraising-Pitch-from-Mediocre-to-Memorable>
 

@@ -1,4 +1,4 @@
-# 寻找、审查并结束最佳产品经理|第一轮评审
+# 寻找、审查并结束最佳产品经理
 
 > 原文：<https://review.firstround.com/find-vet-and-close-the-best-product-managers-heres-how>
 

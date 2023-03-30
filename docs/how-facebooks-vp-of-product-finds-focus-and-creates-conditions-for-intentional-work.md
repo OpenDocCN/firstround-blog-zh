@@ -1,4 +1,4 @@
-# 脸书的产品副总裁如何找到焦点并为有意工作创造条件|第一轮回顾
+# 脸书的产品副总裁如何找到焦点并为有意工作创造条件
 
 > 原文：<https://review.firstround.com/how-facebooks-vp-of-product-finds-focus-and-creates-conditions-for-intentional-work>
 

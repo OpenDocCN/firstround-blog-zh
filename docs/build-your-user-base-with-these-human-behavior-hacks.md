@@ -1,4 +1,4 @@
-# 利用这些人类行为技巧建立您的用户群|第一轮审核
+# 利用这些人类行为技巧建立您的用户群
 
 > 原文：<https://review.firstround.com/build-your-user-base-with-these-human-behavior-hacks>
 

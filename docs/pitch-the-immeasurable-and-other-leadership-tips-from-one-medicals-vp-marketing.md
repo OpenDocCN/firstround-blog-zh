@@ -1,4 +1,4 @@
-# “推销不可估量”和其他领导技巧|第一轮评估
+# “推销不可估量”和其他领导技巧
 
 > 原文：<https://review.firstround.com/pitch-the-immeasurable-and-other-leadership-tips-from-one-medicals-vp-marketing>
 

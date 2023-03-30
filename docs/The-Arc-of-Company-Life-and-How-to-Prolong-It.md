@@ -1,4 +1,4 @@
-# 公司生活的弧线-以及如何延长它|第一轮回顾
+# 公司生活的弧线-以及如何延长它
 
 > 原文：<https://review.firstround.com/The-Arc-of-Company-Life-and-How-to-Prolong-It>
 

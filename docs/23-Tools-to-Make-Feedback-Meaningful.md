@@ -1,4 +1,4 @@
-# 让您的反馈有意义的 23 个工具|第一轮评审
+# 让您的反馈有意义的 23 个工具
 
 > 原文：<https://review.firstround.com/23-Tools-to-Make-Feedback-Meaningful>
 

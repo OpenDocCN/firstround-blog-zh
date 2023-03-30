@@ -1,4 +1,4 @@
-# 不要玩弄死蛇——在项目杀死你之前杀死它们|第一轮评审
+# 不要玩弄死蛇——在项目杀死你之前杀死它们
 
 > 原文：<https://review.firstround.com/dont-play-with-dead-snakes-kill-projects-before-they-kill-you>
 

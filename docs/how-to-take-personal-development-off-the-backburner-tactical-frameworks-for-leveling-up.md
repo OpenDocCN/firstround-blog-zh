@@ -1,4 +1,4 @@
-# 如何将个人发展放在次要位置——提升的战术框架|第一轮评估
+# 如何将个人发展放在次要位置——提升的战术框架
 
 > 原文：<https://review.firstround.com/how-to-take-personal-development-off-the-backburner-tactical-frameworks-for-leveling-up>
 

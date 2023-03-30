@@ -1,4 +1,4 @@
-# 保持联系是你的创业公司生存的关键——以下是如何搞定内部沟通|第一轮评估
+# 保持联系是你的创业公司生存的关键——以下是如何搞定内部沟通
 
 > 原文：<https://review.firstround.com/staying-connected-is-key-to-your-startups-survival-heres-how-to-nail-internal-comms>
 

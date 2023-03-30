@@ -1,4 +1,4 @@
-# 流程是由信息比你少的人告诉你该做什么|第一轮评审
+# 流程是由信息比你少的人告诉你该做什么
 
 > 原文：<https://review.firstround.com/Process-is-Being-Told-What-to-Do-By-Someone-Who-Has-Less-Information-than-You>
 

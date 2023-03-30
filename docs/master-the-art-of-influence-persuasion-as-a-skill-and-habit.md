@@ -1,4 +1,4 @@
-# 掌握影响的艺术——劝说是一种技能和习惯|第一轮回顾
+# 掌握影响的艺术——劝说是一种技能和习惯
 
 > 原文：<https://review.firstround.com/master-the-art-of-influence-persuasion-as-a-skill-and-habit>
 

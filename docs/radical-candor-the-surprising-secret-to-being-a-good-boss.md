@@ -1,4 +1,4 @@
-# 彻底的坦诚——成为一个好老板的惊人秘密|第一轮回顾
+# 彻底的坦诚——成为一个好老板的惊人秘密
 
 > 原文：<https://review.firstround.com/radical-candor-the-surprising-secret-to-being-a-good-boss>
 

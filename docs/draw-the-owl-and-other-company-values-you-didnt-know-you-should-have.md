@@ -1,4 +1,4 @@
-# 画出猫头鹰和其他你不知道应该有的公司价值观|第一轮评估
+# 画出猫头鹰和其他你不知道应该有的公司价值观
 
 > 原文：<https://review.firstround.com/draw-the-owl-and-other-company-values-you-didnt-know-you-should-have>
 

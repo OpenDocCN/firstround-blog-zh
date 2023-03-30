@@ -1,4 +1,4 @@
-# 一位资深的人力资源管理人员，他在最激烈的对话中导航|第一轮回顾
+# 一位资深的人力资源管理人员，他在最激烈的对话中导航
 
 > 原文：<https://review.firstround.com/a-people-ops-veteran-on-navigating-the-gnarliest-conversations>
 

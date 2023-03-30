@@ -1,4 +1,4 @@
-# “上车”和其他获得有意义的客户反馈的技巧|第一轮评审
+# “上车”和其他获得有意义的客户反馈的技巧
 
 > 原文：<https://review.firstround.com/the-power-of-interviewing-customers-the-right-way-from-twitters-ex-vp-product>
 

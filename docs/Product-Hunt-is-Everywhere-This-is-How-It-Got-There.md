@@ -1,4 +1,4 @@
-# 产品搜寻无处不在——这就是它的由来|第一轮回顾
+# 产品搜寻无处不在——这就是它的由来
 
 > 原文：<https://review.firstround.com/Product-Hunt-is-Everywhere-This-is-How-It-Got-There>
 

@@ -1,4 +1,4 @@
-# 太多创业公司在数据方面犯的四个值得畏缩的错误|第一轮回顾
+# 太多创业公司在数据方面犯的四个值得畏缩的错误
 
 > 原文：<https://review.firstround.com/the-four-cringe-worthy-mistakes-too-many-startups-make-with-data>
 

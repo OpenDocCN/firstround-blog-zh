@@ -1,4 +1,4 @@
-# 来自 Duolingo 的 Master Growth Hacker 的 A/B 测试原则|第一轮回顾
+# 来自 Duolingo 的 Master Growth Hacker 的 A/B 测试原则
 
 > 原文：<https://review.firstround.com/the-tenets-of-a-b-testing-from-duolingos-master-growth-hacker>
 

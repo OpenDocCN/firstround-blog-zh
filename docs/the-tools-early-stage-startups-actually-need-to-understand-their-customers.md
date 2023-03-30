@@ -1,4 +1,4 @@
-# 工具早期创业公司实际上需要了解他们的客户|第一轮审查
+# 工具早期创业公司实际上需要了解他们的客户
 
 > 原文：<https://review.firstround.com/the-tools-early-stage-startups-actually-need-to-understand-their-customers>
 

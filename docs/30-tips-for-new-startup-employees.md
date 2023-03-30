@@ -1,4 +1,4 @@
-# 第一次加入创业公司？来自经历过的人的 30 条可行的建议|第一轮回顾
+# 第一次加入创业公司？来自经历过的人的 30 条可行的建议
 
 > 原文：<https://review.firstround.com/30-tips-for-new-startup-employees>
 

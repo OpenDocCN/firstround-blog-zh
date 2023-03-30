@@ -1,4 +1,4 @@
-# 从谷歌地图|第一轮审核中吸取这些经验教训，挑战你的竞争对手
+# 从谷歌地图中吸取这些经验教训，挑战你的竞争对手
 
 > 原文：<https://review.firstround.com/take-on-your-competition-with-these-lessons-from-google-maps>
 

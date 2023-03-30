@@ -1,4 +1,4 @@
-# 如何从谷歌工程师到第一次当 CTO |第一轮回顾
+# 如何从谷歌工程师到第一次当 CTO 
 
 > 原文：<https://review.firstround.com/How-to-Go-From-Google-Engineer-to-First-Time-CTO>
 

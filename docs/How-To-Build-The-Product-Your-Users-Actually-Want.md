@@ -1,4 +1,4 @@
-# 如何让您的用户参与进来，打造他们真正想要的产品|第一轮评审
+# 如何让您的用户参与进来，打造他们真正想要的产品
 
 > 原文：<https://review.firstround.com/How-To-Build-The-Product-Your-Users-Actually-Want>
 

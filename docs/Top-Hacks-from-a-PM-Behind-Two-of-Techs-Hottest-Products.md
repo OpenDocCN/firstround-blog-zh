@@ -1,4 +1,4 @@
-# 科技公司两大热门产品背后的高层黑客|首轮评估
+# 科技公司两大热门产品背后的高层黑客
 
 > 原文：<https://review.firstround.com/Top-Hacks-from-a-PM-Behind-Two-of-Techs-Hottest-Products>
 

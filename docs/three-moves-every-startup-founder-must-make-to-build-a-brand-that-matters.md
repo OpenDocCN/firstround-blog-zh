@@ -1,4 +1,4 @@
-# 每个创业公司创始人必须采取的三个步骤来建立一个重要的品牌|第一轮回顾
+# 每个创业公司创始人必须采取的三个步骤来建立一个重要的品牌
 
 > 原文：<https://review.firstround.com/three-moves-every-startup-founder-must-make-to-build-a-brand-that-matters>
 

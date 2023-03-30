@@ -1,4 +1,4 @@
-# 最危险的领导力陷阱——每天 15 分钟的练习将拯救你|第一轮回顾
+# 最危险的领导力陷阱——每天 15 分钟的练习将拯救你
 
 > 原文：<https://review.firstround.com/the-most-dangerous-leadership-traps-and-the-15-minute-daily-practice-that-will-save-you>
 

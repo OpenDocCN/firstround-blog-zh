@@ -1,4 +1,4 @@
-# 脸书雇用设计师的方法内幕|第一轮评论
+# 脸书雇用设计师的方法内幕
 
 > 原文：<https://review.firstround.com/An-Inside-Look-at-Facebooks-Method-for-Hiring-Designers>
 

@@ -1,4 +1,4 @@
-# 帮助新员工成功(并留下来)的入职策略的 6 个必读书目|第一轮评估
+# 帮助新员工成功(并留下来)的入职策略的 6 个必读书目
 
 > 原文：<https://review.firstround.com/our-6-must-reads-for-onboarding-tactics-that-help-new-hires-succeed-and-stay>
 

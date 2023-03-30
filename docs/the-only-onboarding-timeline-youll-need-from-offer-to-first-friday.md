@@ -1,4 +1,4 @@
-# 您需要的唯一入职时间表:从录用到第一个星期五|第一轮审核
+# 您需要的唯一入职时间表:从录用到第一个星期五
 
 > 原文：<https://review.firstround.com/the-only-onboarding-timeline-youll-need-from-offer-to-first-friday>
 

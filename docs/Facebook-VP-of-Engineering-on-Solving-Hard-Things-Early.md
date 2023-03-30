@@ -1,4 +1,4 @@
-# 脸书工程副总裁谈尽早解决难题|第一轮评估
+# 脸书工程副总裁谈尽早解决难题
 
 > 原文：<https://review.firstround.com/Facebook-VP-of-Engineering-on-Solving-Hard-Things-Early>
 

@@ -1,4 +1,4 @@
-# 不惜一切代价的增长是危险的——这就是如何可持续地扩大销售|第一轮回顾
+# 不惜一切代价的增长是危险的——这就是如何可持续地扩大销售
 
 > 原文：<https://review.firstround.com/growth-at-all-costs-is-perilous-this-is-how-to-scale-sales-sustainably>
 

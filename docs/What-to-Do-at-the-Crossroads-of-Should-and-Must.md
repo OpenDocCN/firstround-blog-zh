@@ -1,4 +1,4 @@
-# 当你处于应该和必须的十字路口时|第一轮复习
+# 当你处于应该和必须的十字路口时
 
 > 原文：<https://review.firstround.com/What-to-Do-at-the-Crossroads-of-Should-and-Must>
 

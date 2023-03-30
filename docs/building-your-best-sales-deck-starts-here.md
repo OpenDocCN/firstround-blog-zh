@@ -1,4 +1,4 @@
-# 打造您的最佳销售资料从这里开始|第一轮审核
+# 打造您的最佳销售资料从这里开始
 
 > 原文：<https://review.firstround.com/building-your-best-sales-deck-starts-here>
 

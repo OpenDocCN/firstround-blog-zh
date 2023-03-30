@@ -1,4 +1,4 @@
-# 这位副总裁在产品部门以不同的方式做事——这是他的剧本|第一轮评审
+# 这位副总裁在产品部门以不同的方式做事——这是他的剧本
 
 > 原文：<https://review.firstround.com/this-vp-is-doing-things-differently-in-the-product-org-heres-his-playbook>
 

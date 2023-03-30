@@ -1,4 +1,4 @@
-# 这种品牌战略可以让你的初创公司看起来比实际规模更大|第一轮评估
+# 这种品牌战略可以让你的初创公司看起来比实际规模更大
 
 > 原文：<https://review.firstround.com/this-brand-strategy-can-make-your-startup-look-bigger-than-it-is>
 

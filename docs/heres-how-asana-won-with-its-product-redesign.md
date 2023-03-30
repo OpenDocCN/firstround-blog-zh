@@ -1,4 +1,4 @@
-# 以下是 Asana 如何通过其产品重新设计赢得|第一轮评审
+# 以下是 Asana 如何通过其产品重新设计赢得
 
 > 原文：<https://review.firstround.com/heres-how-asana-won-with-its-product-redesign>
 

@@ -1,4 +1,4 @@
-# 走进情感健身房——创始人的情感健身框架|第一轮回顾
+# 走进情感健身房——创始人的情感健身框架
 
 > 原文：<https://review.firstround.com/hit-the-emotional-gym-the-founders-framework-for-emotional-fitness>
 

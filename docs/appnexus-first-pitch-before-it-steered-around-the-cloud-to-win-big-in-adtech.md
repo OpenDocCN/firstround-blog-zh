@@ -1,4 +1,4 @@
-# AppNexus 的第一次推介——在它绕过云赢得 AdTech |首轮审查之前
+# AppNexus 的第一次推介——在它绕过云赢得 AdTech 
 
 > 原文：<https://review.firstround.com/appnexus-first-pitch-before-it-steered-around-the-cloud-to-win-big-in-adtech>
 

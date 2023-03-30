@@ -1,4 +1,4 @@
-# 如何变得人脉广泛|第一轮回顾
+# 如何变得人脉广泛
 
 > 原文：<https://review.firstround.com/how-to-become-insanely-well-connected>
 

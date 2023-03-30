@@ -1,4 +1,4 @@
-# 亚当·格兰特谈招聘开拓者、不墨守成规者和原创者的面试|第一轮评论
+# 亚当·格兰特谈招聘开拓者、不墨守成规者和原创者的面试
 
 > 原文：<https://review.firstround.com/adam-grant-on-interviewing-to-hire-trailblazers-nonconformists-and-originals>
 

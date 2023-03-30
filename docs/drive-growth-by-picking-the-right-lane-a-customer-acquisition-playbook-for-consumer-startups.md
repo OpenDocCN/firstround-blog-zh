@@ -1,4 +1,4 @@
-# 通过选择正确的路线推动增长——消费者创业公司的客户获取剧本|第一轮回顾
+# 通过选择正确的路线推动增长——消费者创业公司的客户获取剧本
 
 > 原文：<https://review.firstround.com/drive-growth-by-picking-the-right-lane-a-customer-acquisition-playbook-for-consumer-startups>
 

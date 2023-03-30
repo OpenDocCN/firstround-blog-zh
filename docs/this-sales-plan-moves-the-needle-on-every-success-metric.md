@@ -1,4 +1,4 @@
-# 此销售计划推动每个成功指标|第一轮评估
+# 此销售计划推动每个成功指标
 
 > 原文：<https://review.firstround.com/this-sales-plan-moves-the-needle-on-every-success-metric>
 

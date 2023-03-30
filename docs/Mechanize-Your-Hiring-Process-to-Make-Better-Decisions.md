@@ -1,4 +1,4 @@
-# 机械化招聘流程，做出更好的决策|首轮审核
+# 机械化招聘流程，做出更好的决策
 
 > 原文：<https://review.firstround.com/Mechanize-Your-Hiring-Process-to-Make-Better-Decisions>
 

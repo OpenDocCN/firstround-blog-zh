@@ -1,4 +1,4 @@
-# Gusto 如何建立植根于传统的可扩展招聘实践|第一轮回顾
+# Gusto 如何建立植根于传统的可扩展招聘实践
 
 > 原文：<https://review.firstround.com/how-gusto-built-scalable-hiring-practices-rooted-in-tradition>
 

@@ -1,4 +1,4 @@
-# 川崎关于为什么你的创业是死的，如果你不能附魔|第一轮审查
+# 川崎关于为什么你的创业是死的，如果你不能附魔
 
 > 原文：<https://review.firstround.com/Kawasaki-on-Why-Your-Startup-is-Dead-if-You-Cant-Enchant>
 

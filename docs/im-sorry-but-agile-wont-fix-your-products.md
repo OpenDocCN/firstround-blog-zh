@@ -1,4 +1,4 @@
-# 很抱歉，但是敏捷不会修复您的产品|第一轮评审
+# 很抱歉，但是敏捷不会修复您的产品
 
 > 原文：<https://review.firstround.com/im-sorry-but-agile-wont-fix-your-products>
 

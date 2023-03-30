@@ -1,4 +1,4 @@
-# 毫无疑问地做出产品决策——我从 Twitter 和 Slack 学到的经验|第一轮评估
+# 毫无疑问地做出产品决策——我从 Twitter 和 Slack 学到的经验
 
 > 原文：<https://review.firstround.com/make-product-decisions-without-doubt-my-lessons-from-twitter-and-slack>
 

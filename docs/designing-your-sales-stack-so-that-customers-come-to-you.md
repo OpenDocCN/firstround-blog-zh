@@ -1,4 +1,4 @@
-# 设计您的销售组合，让客户找到您|第一轮评审
+# 设计您的销售组合，让客户找到您
 
 > 原文：<https://review.firstround.com/designing-your-sales-stack-so-that-customers-come-to-you>
 

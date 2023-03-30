@@ -1,4 +1,4 @@
-# 亲爱的初创公司 CEO 们|第一轮回顾
+# 亲爱的初创公司 CEO 们
 
 > 原文：<https://review.firstround.com/Dear-startup-CEOs>
 

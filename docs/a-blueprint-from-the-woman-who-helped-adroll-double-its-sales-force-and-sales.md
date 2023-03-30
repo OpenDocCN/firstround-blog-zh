@@ -1,4 +1,4 @@
-# 帮助 AdRoll 将销售队伍和销售额翻倍的女性的蓝图|第一轮评估
+# 帮助 AdRoll 将销售队伍和销售额翻倍的女性的蓝图
 
 > 原文：<https://review.firstround.com/a-blueprint-from-the-woman-who-helped-adroll-double-its-sales-force-and-sales>
 

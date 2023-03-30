@@ -1,4 +1,4 @@
-# 给粗心和不熟悉的人的违反直觉的报酬提示|第一轮评论
+# 给粗心和不熟悉的人的违反直觉的报酬提示
 
 > 原文：<https://review.firstround.com/counterintuitive-comp-tips-for-the-unwary-and-uninitiated>
 

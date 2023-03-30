@@ -1,4 +1,4 @@
-# 价格合适:确定定价策略的基本技巧|第一轮评估
+# 价格合适:确定定价策略的基本技巧
 
 > 原文：<https://review.firstround.com/the-price-is-right-essential-tips-for-nailing-your-pricing-strategy>
 

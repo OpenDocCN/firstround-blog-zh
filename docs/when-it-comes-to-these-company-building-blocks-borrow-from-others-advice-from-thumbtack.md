@@ -1,4 +1,4 @@
-# 当谈到这些公司的基石时，从别人那里借用——图钉首席执行官的建议|第一轮审查
+# 当谈到这些公司的基石时，从别人那里借用——图钉首席执行官的建议
 
 > 原文：<https://review.firstround.com/when-it-comes-to-these-company-building-blocks-borrow-from-others-advice-from-thumbtack>
 

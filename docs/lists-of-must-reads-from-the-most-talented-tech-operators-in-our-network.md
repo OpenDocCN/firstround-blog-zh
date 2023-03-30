@@ -1,4 +1,4 @@
-# 我们网络中最有才华的技术操作员必读清单|第一轮评论
+# 我们网络中最有才华的技术操作员必读清单
 
 > 原文：<https://review.firstround.com/lists-of-must-reads-from-the-most-talented-tech-operators-in-our-network>
 

@@ -1,4 +1,4 @@
-# 创业公司需要集思广益、测试并赢得胜利的一个工具|第一轮评审
+# 创业公司需要集思广益、测试并赢得胜利的一个工具
 
 > 原文：<https://review.firstround.com/To-Go-Lean-Master-the-Business-Model-Canvas>
 

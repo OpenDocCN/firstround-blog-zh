@@ -1,4 +1,4 @@
-# 组建一个执行领导团队令人生畏——让图钉的首席执行官来帮忙|第一轮评估
+# 组建一个执行领导团队令人生畏——让图钉的首席执行官来帮忙
 
 > 原文：<https://review.firstround.com/assembling-an-executive-leadership-team-is-daunting-let-thumbtacks-ceo-help>
 

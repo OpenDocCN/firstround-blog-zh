@@ -1,4 +1,4 @@
-# 在正确的时间雇佣正确的营销人员的剧本|第一轮回顾
+# 在正确的时间雇佣正确的营销人员的剧本
 
 > 原文：<https://review.firstround.com/the-playbook-for-hiring-the-right-marketer-at-the-right-time-for-your-startup>
 

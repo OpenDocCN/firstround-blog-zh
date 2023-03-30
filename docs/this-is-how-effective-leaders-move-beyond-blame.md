@@ -1,4 +1,4 @@
-# 这就是有效的领导者如何超越责备|第一轮回顾
+# 这就是有效的领导者如何超越责备
 
 > 原文：<https://review.firstround.com/this-is-how-effective-leaders-move-beyond-blame>
 

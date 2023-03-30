@@ -1,4 +1,4 @@
-# 最好的领导者是反馈磁铁——以下是如何成为一名领导者|第一轮评估
+# 最好的领导者是反馈磁铁——以下是如何成为一名领导者
 
 > 原文：<https://review.firstround.com/the-best-leaders-are-feedback-magnets-heres-how-to-become-one>
 

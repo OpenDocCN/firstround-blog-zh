@@ -1,4 +1,4 @@
-# Heidi Roizen 关于建立充实的生活和职业生涯的 8 个稀有宝石|第一轮评论
+# Heidi Roizen 关于建立充实的生活和职业生涯的 8 个稀有宝石
 
 > 原文：<https://review.firstround.com/8-Rare-Gems-from-Heidi-Roizen-on-Building-a-Fulfilling-Life-and-Career>
 

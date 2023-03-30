@@ -1,4 +1,4 @@
-# 用户至上的货币化 Instagram 和 Strava 的经验|第一轮回顾
+# 用户至上的货币化 Instagram 和 Strava 的经验
 
 > 原文：<https://review.firstround.com/user-first-monetization-lessons-from-instagram-and-strava>
 

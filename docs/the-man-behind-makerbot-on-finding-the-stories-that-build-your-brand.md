@@ -1,4 +1,4 @@
-# MakerBot 背后的人寻找建立你的品牌的故事|第一轮评论
+# MakerBot 背后的人寻找建立你的品牌的故事
 
 > 原文：<https://review.firstround.com/the-man-behind-makerbot-on-finding-the-stories-that-build-your-brand>
 

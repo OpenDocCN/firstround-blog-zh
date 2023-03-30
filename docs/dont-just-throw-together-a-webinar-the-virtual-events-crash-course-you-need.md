@@ -1,4 +1,4 @@
-# 不要只是拼凑一个网上研讨会——你需要的虚拟活动速成班|第一轮评审
+# 不要只是拼凑一个网上研讨会——你需要的虚拟活动速成班
 
 > 原文：<https://review.firstround.com/dont-just-throw-together-a-webinar-the-virtual-events-crash-course-you-need>
 

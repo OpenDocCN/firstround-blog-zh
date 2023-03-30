@@ -1,4 +1,4 @@
-# 设计师如何赢得一席之地|第一轮评论
+# 设计师如何赢得一席之地
 
 > 原文：<https://review.firstround.com/How-Designers-Can-Earn-a-Seat-at-the-Table-2>
 

@@ -1,4 +1,4 @@
-# 为什么这位工程领导者认为你不应该以零遗憾减员为目标|第一轮回顾
+# 为什么这位工程领导者认为你不应该以零遗憾减员为目标
 
 > 原文：<https://review.firstround.com/why-this-engineering-leader-thinks-you-shouldnt-aim-for-zero-regrettable-attrition>
 

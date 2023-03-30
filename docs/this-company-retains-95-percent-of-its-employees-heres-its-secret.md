@@ -1,4 +1,4 @@
-# 这家公司留住了 95%的员工——这是它的秘密|第一轮评估
+# 这家公司留住了 95%的员工——这是它的秘密
 
 > 原文：<https://review.firstround.com/this-company-retains-95-percent-of-its-employees-heres-its-secret>
 

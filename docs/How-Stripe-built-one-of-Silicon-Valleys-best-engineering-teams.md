@@ -1,4 +1,4 @@
-# Stripe 如何打造硅谷最好的工程团队之一|第一轮回顾
+# Stripe 如何打造硅谷最好的工程团队之一
 
 > 原文：<https://review.firstround.com/How-Stripe-built-one-of-Silicon-Valleys-best-engineering-teams>
 

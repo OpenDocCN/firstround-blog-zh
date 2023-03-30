@@ -1,4 +1,4 @@
-# 我们认识的最聪明的人推荐的夏季书籍|第一轮评论
+# 我们认识的最聪明的人推荐的夏季书籍
 
 > 原文：<https://review.firstround.com/summer-book-recommendations-from-the-smartest-people-we-know>
 

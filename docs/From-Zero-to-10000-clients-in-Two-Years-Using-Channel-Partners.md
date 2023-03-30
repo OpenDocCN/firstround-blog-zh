@@ -1,4 +1,4 @@
-# 使用渠道合作伙伴在两年内从零到 10，000 个客户|第一轮评估
+# 使用渠道合作伙伴在两年内从零到 10，000 个客户
 
 > 原文：<https://review.firstround.com/From-Zero-to-10000-clients-in-Two-Years-Using-Channel-Partners>
 

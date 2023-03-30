@@ -1,4 +1,4 @@
-# 这位创始人如何将缓慢的烧钱速度转变为大退出|第一轮回顾
+# 这位创始人如何将缓慢的烧钱速度转变为大退出
 
 > 原文：<https://review.firstround.com/This-Founder-Turned-a-Slow-Burn-Rate-into-a-Big-Exit>
 

@@ -1,4 +1,4 @@
-# 您的数据是您的命根子-建立值得拥有的分析|第一轮审查
+# 您的数据是您的命根子-建立值得拥有的分析
 
 > 原文：<https://review.firstround.com/your-data-is-your-lifeblood-set-up-the-analytics-it-deserves>
 

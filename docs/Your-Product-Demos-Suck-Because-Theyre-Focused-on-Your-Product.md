@@ -1,4 +1,4 @@
-# 您的产品演示很糟糕，因为它专注于您的产品|第一轮评审
+# 您的产品演示很糟糕，因为它专注于您的产品
 
 > 原文：<https://review.firstround.com/Your-Product-Demos-Suck-Because-Theyre-Focused-on-Your-Product>
 

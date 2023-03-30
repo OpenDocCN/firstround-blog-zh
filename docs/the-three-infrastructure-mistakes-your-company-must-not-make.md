@@ -1,4 +1,4 @@
-# 贵公司不能犯的三个基础架构错误|第一轮评审
+# 贵公司不能犯的三个基础架构错误
 
 > 原文：<https://review.firstround.com/the-three-infrastructure-mistakes-your-company-must-not-make>
 

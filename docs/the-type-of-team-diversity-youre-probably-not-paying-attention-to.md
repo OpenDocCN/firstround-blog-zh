@@ -1,4 +1,4 @@
-# 你可能没有注意到的团队多样性类型|第一轮评估
+# 你可能没有注意到的团队多样性类型
 
 > 原文：<https://review.firstround.com/the-type-of-team-diversity-youre-probably-not-paying-attention-to>
 

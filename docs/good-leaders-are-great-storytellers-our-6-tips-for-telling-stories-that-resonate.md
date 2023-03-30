@@ -1,4 +1,4 @@
-# 优秀的领导者是伟大的故事讲述者——我们讲述能引起共鸣的故事的 6 个技巧|第一轮回顾
+# 优秀的领导者是伟大的故事讲述者——我们讲述能引起共鸣的故事的 6 个技巧
 
 > 原文：<https://review.firstround.com/good-leaders-are-great-storytellers-our-6-tips-for-telling-stories-that-resonate>
 

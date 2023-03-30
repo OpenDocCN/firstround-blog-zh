@@ -1,4 +1,4 @@
-# 创始人需要听到的反馈——如何让自己成长以发展公司|第一轮评估
+# 创始人需要听到的反馈——如何让自己成长以发展公司
 
 > 原文：<https://review.firstround.com/the-feedback-founders-need-to-hear-—-how-to-grow-yourself-to-grow-the-company>
 

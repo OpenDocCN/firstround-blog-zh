@@ -1,4 +1,4 @@
-# 移情驱动的开发:工程师如何利用这一关键技能|第一轮回顾
+# 移情驱动的开发:工程师如何利用这一关键技能
 
 > 原文：<https://review.firstround.com/empathy-driven-development-how-engineers-can-tap-into-this-critical-skill>
 

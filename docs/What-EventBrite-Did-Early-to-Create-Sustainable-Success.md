@@ -1,4 +1,4 @@
-# Eventbrite 早期为创造“可持续”成功做了什么|第一轮回顾
+# Eventbrite 早期为创造“可持续”成功做了什么
 
 > 原文：<https://review.firstround.com/What-EventBrite-Did-Early-to-Create-Sustainable-Success>
 

@@ -1,4 +1,4 @@
-# 构建智能推送通知的必备知识|第一轮回顾
+# 构建智能推送通知的必备知识
 
 > 原文：<https://review.firstround.com/what-you-must-know-to-build-savvy-push-notifications>
 

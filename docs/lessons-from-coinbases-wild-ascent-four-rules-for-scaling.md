@@ -1,4 +1,4 @@
-# 比特币基地疯狂崛起的教训:攀登的四大法则|第一轮回顾
+# 比特币基地疯狂崛起的教训:攀登的四大法则
 
 > 原文：<https://review.firstround.com/lessons-from-coinbases-wild-ascent-four-rules-for-scaling>
 

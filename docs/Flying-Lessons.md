@@ -1,4 +1,4 @@
-# 飞行课程|第一轮复习
+# 飞行课程
 
 > 原文：<https://review.firstround.com/Flying-Lessons>
 

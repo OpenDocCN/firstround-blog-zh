@@ -1,4 +1,4 @@
-# 充分利用你的空间 Airbnb 和 SoundCloud 背后的职场设计师的秘密|首轮评论
+# 充分利用你的空间 Airbnb 和 SoundCloud 背后的职场设计师的秘密
 
 > 原文：<https://review.firstround.com/Maximize-Productivity-with-This-Advice-from-the-Office-Designer-Behind-SoundCloud-and-Airbnb>
 

@@ -1,4 +1,4 @@
-# 旧杂志和兰博基尼如何影响 Flipboard 的设计过程和方法|第一轮评论
+# 旧杂志和兰博基尼如何影响 Flipboard 的设计过程和方法
 
 > 原文：<https://review.firstround.com/How-Old-magazines-and-Lamborghinis-inform-Flipboards-design-process-and-approach>
 

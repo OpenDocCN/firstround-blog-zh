@@ -1,4 +1,4 @@
-# “适应性强的领导者”是新的圣杯——成为一个，雇佣一个|第一轮回顾
+# “适应性强的领导者”是新的圣杯——成为一个，雇佣一个
 
 > 原文：<https://review.firstround.com/the-adaptable-leader-is-the-new-holy-grail-become-one-hire-one>
 

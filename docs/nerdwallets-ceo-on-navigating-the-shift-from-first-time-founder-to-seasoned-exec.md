@@ -1,4 +1,4 @@
-# NerdWallet 首席执行官谈如何从初次创业者转变为经验丰富的高管|第一轮回顾
+# NerdWallet 首席执行官谈如何从初次创业者转变为经验丰富的高管
 
 > 原文：<https://review.firstround.com/nerdwallets-ceo-on-navigating-the-shift-from-first-time-founder-to-seasoned-exec>
 

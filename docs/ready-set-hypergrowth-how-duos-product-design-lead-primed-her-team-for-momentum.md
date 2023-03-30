@@ -1,4 +1,4 @@
-# 准备、设置、超增长:Duo 的产品设计领导如何为她的团队准备动力|第一轮回顾
+# 准备、设置、超增长:Duo 的产品设计领导如何为她的团队准备动力
 
 > 原文：<https://review.firstround.com/ready-set-hypergrowth-how-duos-product-design-lead-primed-her-team-for-momentum>
 

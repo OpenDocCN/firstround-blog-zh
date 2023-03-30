@@ -1,4 +1,4 @@
-# 优步和 Airbnb 等现代市场如何建立信任以实现流动性|首轮评论
+# 优步和 Airbnb 等现代市场如何建立信任以实现流动性
 
 > 原文：<https://review.firstround.com/How-Modern-Marketplaces-Like-Uber-Airbnb-Build-Trust-to-Hit-Liquidity>
 

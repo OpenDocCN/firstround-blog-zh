@@ -1,4 +1,4 @@
-# Squarespace 的首席执行官如何转向数百万美元的规模|第一轮评论
+# Squarespace 的首席执行官如何转向数百万美元的规模
 
 > 原文：<https://review.firstround.com/How-Squarespaces-CEO-Pivoted-to-Scale-for-Millions>
 

@@ -1,4 +1,4 @@
-# 雇佣工程副总裁？使用 Shopify 的 VPE 的这个框架来做正确的事情|第一轮评论
+# 雇佣工程副总裁？使用 Shopify 的 VPE 的这个框架来做正确的事情
 
 > 原文：<https://review.firstround.com/hiring-a-vp-of-engineering-use-this-framework-from-shopify>
 

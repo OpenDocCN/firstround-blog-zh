@@ -1,4 +1,4 @@
-# Sweetgreen 能教会初创公司如何扩大亲密度|第一轮回顾
+# Sweetgreen 能教会初创公司如何扩大亲密度
 
 > 原文：<https://review.firstround.com/what-sweetgreen-can-teach-startups-about-scaling-intimacy>
 

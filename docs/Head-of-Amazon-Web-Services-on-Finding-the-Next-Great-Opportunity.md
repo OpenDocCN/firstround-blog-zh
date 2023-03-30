@@ -1,4 +1,4 @@
-# 亚马逊网络服务负责人谈寻找下一个绝佳机会|第一轮评论
+# 亚马逊网络服务负责人谈寻找下一个绝佳机会
 
 > 原文：<https://review.firstround.com/Head-of-Amazon-Web-Services-on-Finding-the-Next-Great-Opportunity>
 

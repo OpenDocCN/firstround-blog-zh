@@ -1,4 +1,4 @@
-# 为什么行政办公室需要两个主管|第一轮评估
+# 为什么行政办公室需要两个主管
 
 > 原文：<https://review.firstround.com/why-you-need-two-chiefs-in-the-executive-office>
 

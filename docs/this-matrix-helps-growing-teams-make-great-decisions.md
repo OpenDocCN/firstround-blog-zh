@@ -1,4 +1,4 @@
-# 该矩阵帮助成长中的团队做出重大决策|第一轮评审
+# 该矩阵帮助成长中的团队做出重大决策
 
 > 原文：<https://review.firstround.com/this-matrix-helps-growing-teams-make-great-decisions>
 

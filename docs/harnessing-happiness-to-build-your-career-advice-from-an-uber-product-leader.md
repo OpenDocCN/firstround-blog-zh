@@ -1,4 +1,4 @@
-# 利用快乐打造你的职业生涯——来自优步产品负责人的建议|第一轮回顾
+# 利用快乐打造你的职业生涯——来自优步产品负责人的建议
 
 > 原文：<https://review.firstround.com/harnessing-happiness-to-build-your-career-advice-from-an-uber-product-leader>
 

@@ -1,4 +1,4 @@
-# 我们发表过的最好的面试问题|第一轮评论
+# 我们发表过的最好的面试问题
 
 > 原文：<https://review.firstround.com/the-best-interview-questions-weve-ever-published>
 

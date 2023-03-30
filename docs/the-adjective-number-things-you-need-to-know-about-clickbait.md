@@ -1,4 +1,4 @@
-# 关于 Clickbait 你需要知道的[形容词][数字]事情|第一轮回顾
+# 关于 Clickbait 你需要知道的[形容词][数字]事情
 
 > 原文：<https://review.firstround.com/the-adjective-number-things-you-need-to-know-about-clickbait>
 

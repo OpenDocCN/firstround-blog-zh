@@ -1,4 +1,4 @@
-# 向工程候选人提供更优惠的条件，提高成交率|第一轮审核
+# 向工程候选人提供更优惠的条件，提高成交率
 
 > 原文：<https://review.firstround.com/make-stronger-offers-to-engineering-candidates-and-boost-your-closes>
 

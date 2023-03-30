@@ -1,4 +1,4 @@
-# 赢得全球优秀人才之战——国际招聘的关键|第一轮回顾
+# 赢得全球优秀人才之战——国际招聘的关键
 
 > 原文：<https://review.firstround.com/Win-the-War-for-Great-Global-Talent-The-Keys-to-International-Recruiting>
 

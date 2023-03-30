@@ -1,4 +1,4 @@
-# 在销售和产品之间:在& Dropbox 建立自助服务和客户体验|第一轮回顾
+# 在销售和产品之间:在& Dropbox 建立自助服务和客户体验
 
 > 原文：<https://review.firstround.com/between-sales-and-product:-building-out-self-serve-and-customer-experience-at-notion-and-dropbox>
 

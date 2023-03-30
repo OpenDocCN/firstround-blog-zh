@@ -1,4 +1,4 @@
-# 经理发展员工必须具备的三种有力对话|第一轮评估
+# 经理发展员工必须具备的三种有力对话
 
 > 原文：<https://review.firstround.com/three-powerful-conversations-managers-must-have-to-develop-their-people>
 

@@ -1,4 +1,4 @@
-# Dropbox 如何寻找、扩展和运输其最佳产品创意|第一轮回顾
+# Dropbox 如何寻找、扩展和运输其最佳产品创意
 
 > 原文：<https://review.firstround.com/how-dropbox-sources-scales-and-ships-its-best-product-ideas>
 

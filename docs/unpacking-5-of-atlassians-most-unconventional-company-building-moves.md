@@ -1,4 +1,4 @@
-# 解开 Atlassian 最不寻常的 5 个公司建设步骤|第一轮回顾
+# 解开 Atlassian 最不寻常的 5 个公司建设步骤
 
 > 原文：<https://review.firstround.com/unpacking-5-of-atlassians-most-unconventional-company-building-moves>
 

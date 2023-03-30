@@ -1,4 +1,4 @@
-# 创始人纪律指南:Front 的玛蒂尔德·科林的经验教训|第一轮回顾
+# 创始人纪律指南:Front 的玛蒂尔德·科林的经验教训
 
 > 原文：<https://review.firstround.com/the-founders-guide-to-discipline-lessons-from-fronts-mathilde-collin>
 

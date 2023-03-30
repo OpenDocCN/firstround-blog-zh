@@ -1,4 +1,4 @@
-# 易贝首位首席多元化官，负责人性化多元化和包容性|第一轮评审
+# 易贝首位首席多元化官，负责人性化多元化和包容性
 
 > 原文：<https://review.firstround.com/ebays-first-chief-diversity-officer-on-humanizing-diversity-and-inclusion>
 

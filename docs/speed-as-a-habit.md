@@ -1,4 +1,4 @@
-# 速度是一种习惯|第一轮回顾
+# 速度是一种习惯
 
 > 原文：<https://review.firstround.com/speed-as-a-habit>
 

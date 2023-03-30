@@ -1,4 +1,4 @@
-# 2013 年给创业者的 30 条最佳建议|第一轮回顾
+# 2013 年给创业者的 30 条最佳建议
 
 > 原文：<https://review.firstround.com/30-Best-Pieces>
 

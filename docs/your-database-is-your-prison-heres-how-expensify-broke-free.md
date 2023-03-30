@@ -1,4 +1,4 @@
-# 你的数据库就是你的监狱——以下是 Expensify 如何挣脱束缚|第一轮评论
+# 你的数据库就是你的监狱——以下是 Expensify 如何挣脱束缚
 
 > 原文：<https://review.firstround.com/your-database-is-your-prison-heres-how-expensify-broke-free>
 

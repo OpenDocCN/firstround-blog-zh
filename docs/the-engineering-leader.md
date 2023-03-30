@@ -1,4 +1,4 @@
-# 工程领导者打造脱颖而出的个人品牌指南|第一轮评论
+# 工程领导者打造脱颖而出的个人品牌指南
 
 > 原文：<https://review.firstround.com/the-engineering-leader>
 

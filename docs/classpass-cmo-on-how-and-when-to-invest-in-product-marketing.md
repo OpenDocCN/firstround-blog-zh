@@ -1,4 +1,4 @@
-# class pass’CMO 关于如何以及何时投资产品营销|第一轮回顾
+# class pass’CMO 关于如何以及何时投资产品营销
 
 > 原文：<https://review.firstround.com/classpass-cmo-on-how-and-when-to-invest-in-product-marketing>
 

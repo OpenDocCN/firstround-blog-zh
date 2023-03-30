@@ -1,4 +1,4 @@
-# 不要提供烤焦的披萨(以及其他关于制作最小可爱产品的教训)|第一轮评论
+# 不要提供烤焦的披萨(以及其他关于制作最小可爱产品的教训)
 
 > 原文：<https://review.firstround.com/dont-serve-burnt-pizza-and-other-lessons-in-building-minimum-lovable-products>
 

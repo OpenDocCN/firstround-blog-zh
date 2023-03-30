@@ -1,4 +1,4 @@
-# 认知开销是你产品的霸主——用下面的建议推翻它|第一轮评论
+# 认知开销是你产品的霸主——用下面的建议推翻它
 
 > 原文：<https://review.firstround.com/cognitive-overhead-is-your-products-overlord-topple-it-with-these-tips>
 

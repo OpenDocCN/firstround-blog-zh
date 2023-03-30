@@ -1,4 +1,4 @@
-# 我从采访三家初创公司的 400 多名工程师中学到的经验|第一轮回顾
+# 我从采访三家初创公司的 400 多名工程师中学到的经验
 
 > 原文：<https://review.firstround.com/my-lessons-from-interviewing-400-engineers-over-three-startups>
 

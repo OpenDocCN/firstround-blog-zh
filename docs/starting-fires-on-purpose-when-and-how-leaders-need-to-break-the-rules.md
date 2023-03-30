@@ -1,4 +1,4 @@
-# 故意纵火——领导者何时以及如何打破规则|第一轮回顾
+# 故意纵火——领导者何时以及如何打破规则
 
 > 原文：<https://review.firstround.com/starting-fires-on-purpose-when-and-how-leaders-need-to-break-the-rules>
 

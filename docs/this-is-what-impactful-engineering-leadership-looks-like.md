@@ -1,4 +1,4 @@
-# 这就是有影响力的工程领导的样子|第一轮评审
+# 这就是有影响力的工程领导的样子
 
 > 原文：<https://review.firstround.com/this-is-what-impactful-engineering-leadership-looks-like>
 

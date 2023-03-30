@@ -1,4 +1,4 @@
-# 帮助我们的创始人筹集 180 亿美元后续资金的融资智慧|第一轮回顾
+# 帮助我们的创始人筹集 180 亿美元后续资金的融资智慧
 
 > 原文：<https://review.firstround.com/the-fundraising-wisdom-that-helped-our-founders-raise-18b-in-follow-on-capital>
 

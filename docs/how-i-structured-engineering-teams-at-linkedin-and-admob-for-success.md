@@ -1,4 +1,4 @@
-# 我如何在 LinkedIn 和 AdMob 构建成功的工程团队|第一轮回顾
+# 我如何在 LinkedIn 和 AdMob 构建成功的工程团队
 
 > 原文：<https://review.firstround.com/how-i-structured-engineering-teams-at-linkedin-and-admob-for-success>
 

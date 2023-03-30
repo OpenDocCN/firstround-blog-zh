@@ -1,4 +1,4 @@
-# 以下是 Adobe 产品营销总监如何驾驭选择的悖论|第一轮回顾
+# 以下是 Adobe 产品营销总监如何驾驭选择的悖论
 
 > 原文：<https://review.firstround.com/heres-how-adobes-director-of-product-marketing-navigates-the-paradox-of-choice>
 

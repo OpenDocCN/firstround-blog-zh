@@ -1,4 +1,4 @@
-# 一个创始人，M&A 会议的两方——所有创业公司都能从他的经历中学到什么|第一轮回顾
+# 一个创始人，M&A 会议的两方——所有创业公司都能从他的经历中学到什么
 
 > 原文：<https://review.firstround.com/one-founder-both-sides-of-the-manda-table-what-all-startups-can-learn-from-his-experience>
 

@@ -1,4 +1,4 @@
-# 软件正在吞噬硬件——建造神奇设备的课程|第一轮回顾
+# 软件正在吞噬硬件——建造神奇设备的课程
 
 > 原文：<https://review.firstround.com/hardware-adam-macbeth>
 

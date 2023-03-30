@@ -1,4 +1,4 @@
-# 你没有从投资者那里获得最大收益——这就是如何开始|第一轮评审
+# 你没有从投资者那里获得最大收益——这就是如何开始
 
 > 原文：<https://review.firstround.com/you-arent-getting-the-most-out-of-your-investors-this-is-how-to-start>
 

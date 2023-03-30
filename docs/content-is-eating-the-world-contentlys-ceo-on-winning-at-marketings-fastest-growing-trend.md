@@ -1,4 +1,4 @@
-# 内容正在吞噬世界——Contently 首席执行官谈赢得营销新热点|首轮评论
+# 内容正在吞噬世界——Contently 首席执行官谈赢得营销新热点
 
 > 原文：<https://review.firstround.com/content-is-eating-the-world-contentlys-ceo-on-winning-at-marketings-fastest-growing-trend>
 

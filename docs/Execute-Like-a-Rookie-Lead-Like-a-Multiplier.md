@@ -1,4 +1,4 @@
-# 像菜鸟一样执行，像乘数一样领导|第一轮回顾
+# 像菜鸟一样执行，像乘数一样领导
 
 > 原文：<https://review.firstround.com/Execute-Like-a-Rookie-Lead-Like-a-Multiplier>
 

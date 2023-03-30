@@ -1,4 +1,4 @@
-# 首席执行官 Matt Brezina 真诚地谈论快速应用程序开发技术|第一轮回顾
+# 首席执行官 Matt Brezina 真诚地谈论快速应用程序开发技术
 
 > 原文：<https://review.firstround.com/Matt-Brezina-YC-Alumnus-and-Sincerely-CEO-on-rapid-app-development-techniques>
 

@@ -1,4 +1,4 @@
-# 用这位行为设计师的策略击退干扰|第一轮点评
+# 用这位行为设计师的策略击退干扰
 
 > 原文：<https://review.firstround.com/hack-back-distractions-with-tactics-from-this-behavioral-designer>
 

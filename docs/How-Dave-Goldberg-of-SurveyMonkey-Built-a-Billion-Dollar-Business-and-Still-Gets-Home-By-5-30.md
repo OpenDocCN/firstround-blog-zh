@@ -1,4 +1,4 @@
-# SurveyMonkey 的戴夫·戈德堡如何建立了一个十亿美元的业务，并仍然在下午 5:30 到家|第一轮评论
+# SurveyMonkey 的戴夫·戈德堡如何建立了一个十亿美元的业务，并仍然在下午 5:30 到家
 
 > 原文：<https://review.firstround.com/How-Dave-Goldberg-of-SurveyMonkey-Built-a-Billion-Dollar-Business-and-Still-Gets-Home-By-5-30>
 

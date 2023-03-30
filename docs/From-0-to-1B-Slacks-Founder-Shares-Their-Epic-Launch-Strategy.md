@@ -1,4 +1,4 @@
-# 从 0 到$ 1B——Slack 的创始人分享他们史诗般的发布战略|第一轮回顾
+# 从 0 到$ 1B——Slack 的创始人分享他们史诗般的发布战略
 
 > 原文：<https://review.firstround.com/From-0-to-1B-Slacks-Founder-Shares-Their-Epic-Launch-Strategy>
 

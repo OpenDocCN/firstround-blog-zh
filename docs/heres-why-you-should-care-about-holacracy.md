@@ -1,4 +1,4 @@
-# 以下是您应该关注 Holacracy |第一轮评审的原因
+# 以下是您应该关注 Holacracy 的原因
 
 > 原文：<https://review.firstround.com/heres-why-you-should-care-about-holacracy>
 

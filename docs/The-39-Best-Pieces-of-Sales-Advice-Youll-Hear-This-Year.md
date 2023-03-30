@@ -1,4 +1,4 @@
-# 今年你将听到的 39 条最佳销售建议|第一轮评估
+# 今年你将听到的 39 条最佳销售建议
 
 > 原文：<https://review.firstround.com/The-39-Best-Pieces-of-Sales-Advice-Youll-Hear-This-Year>
 

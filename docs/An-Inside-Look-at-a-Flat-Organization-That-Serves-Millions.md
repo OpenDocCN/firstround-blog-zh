@@ -1,4 +1,4 @@
-# 深入了解服务于数百万人的扁平组织|第一轮评估
+# 深入了解服务于数百万人的扁平组织
 
 > 原文：<https://review.firstround.com/An-Inside-Look-at-a-Flat-Organization-That-Serves-Millions>
 

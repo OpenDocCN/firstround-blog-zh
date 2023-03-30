@@ -1,4 +1,4 @@
-# 这家初创公司成功启动背后的测试程序|第一轮审查
+# 这家初创公司成功启动背后的测试程序
 
 > 原文：<https://review.firstround.com/the-beta-program-behind-this-startups-winning-launch>
 

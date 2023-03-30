@@ -1,4 +1,4 @@
-# 经理们，通过这 6 个必读内容，将你们的 1 对 1 提升到一个新的水平|第一轮评估
+# 经理们，通过这 6 个必读内容，将你们的 1 对 1 提升到一个新的水平
 
 > 原文：<https://review.firstround.com/managers-take-your-1-1s-to-the-next-level-with-these-6-must-reads>
 

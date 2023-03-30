@@ -1,4 +1,4 @@
-# 我们穿越冲突和艰难对话的 6 个必读书目|第一轮回顾
+# 我们穿越冲突和艰难对话的 6 个必读书目
 
 > 原文：<https://review.firstround.com/our-6-must-reads-for-cutting-through-conflict-and-tough-conversations>
 

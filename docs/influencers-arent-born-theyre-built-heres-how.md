@@ -1,4 +1,4 @@
-# 影响者不是天生的，而是后天培养的——以下是如何|第一轮评估
+# 影响者不是天生的，而是后天培养的——以下是如何
 
 > 原文：<https://review.firstround.com/influencers-arent-born-theyre-built-heres-how>
 

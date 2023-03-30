@@ -1,4 +1,4 @@
-# 来自亚马逊前副总裁的完美技术面试剖析|第一轮回顾
+# 来自亚马逊前副总裁的完美技术面试剖析
 
 > 原文：<https://review.firstround.com/The-anatomy-of-the-perfect-technical-interview-from-a-former-Amazon-VP>
 

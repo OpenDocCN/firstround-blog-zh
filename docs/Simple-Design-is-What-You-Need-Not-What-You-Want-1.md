@@ -1,4 +1,4 @@
-# 简单的设计是你需要的，而不是你想要的|第一轮审核
+# 简单的设计是你需要的，而不是你想要的
 
 > 原文：<https://review.firstround.com/Simple-Design-is-What-You-Need-Not-What-You-Want-1>
 

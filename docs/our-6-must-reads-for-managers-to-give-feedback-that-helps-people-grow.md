@@ -1,4 +1,4 @@
-# 经理给出反馈帮助员工成长的 6 个必读书目|第一轮评估
+# 经理给出反馈帮助员工成长的 6 个必读书目
 
 > 原文：<https://review.firstround.com/our-6-must-reads-for-managers-to-give-feedback-that-helps-people-grow>
 

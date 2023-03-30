@@ -1,4 +1,4 @@
-# 从 Kabam 的 3 次濒死胜利中选择生存策略|第一轮回顾
+# 从 Kabam 的 3 次濒死胜利中选择生存策略
 
 > 原文：<https://review.firstround.com/pivot-survival-tactics-from-kabams-3-near-death-triumphs>
 

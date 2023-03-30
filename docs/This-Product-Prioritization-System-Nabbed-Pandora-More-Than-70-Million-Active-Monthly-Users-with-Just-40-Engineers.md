@@ -1,4 +1,4 @@
-# 这个产品优先级系统仅用 40 名工程师就抓住了 Pandora 每月 7000 万的用户|第一轮评审
+# 这个产品优先级系统仅用 40 名工程师就抓住了 Pandora 每月 7000 万的用户
 
 > 原文：<https://review.firstround.com/This-Product-Prioritization-System-Nabbed-Pandora-More-Than-70-Million-Active-Monthly-Users-with-Just-40-Engineers>
 

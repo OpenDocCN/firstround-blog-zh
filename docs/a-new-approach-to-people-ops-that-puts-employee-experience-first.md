@@ -1,4 +1,4 @@
-# 将员工体验放在首位的人力运营新方法|第一轮评估
+# 将员工体验放在首位的人力运营新方法
 
 > 原文：<https://review.firstround.com/a-new-approach-to-people-ops-that-puts-employee-experience-first>
 

@@ -1,4 +1,4 @@
-# 应对最糟糕对话的最佳方法:“你被解雇了”|第一轮评估
+# 应对最糟糕对话的最佳方法:“你被解雇了”
 
 > 原文：<https://review.firstround.com/The-Best-Approach-to-the-Worst-Conversation>
 

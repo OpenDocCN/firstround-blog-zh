@@ -1,4 +1,4 @@
-# 掌握结果的艺术:Guru 如何将客户成功转化为公司基石|第一轮回顾
+# 掌握结果的艺术:Guru 如何将客户成功转化为公司基石
 
 > 原文：<https://review.firstround.com/mastering-the-art-of-the-outcome-how-guru-turned-customer-success-into-a-company-cornerstone>
 

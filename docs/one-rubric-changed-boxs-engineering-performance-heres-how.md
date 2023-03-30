@@ -1,4 +1,4 @@
-# 一个标题改变了 Box 的工程性能——以下是如何|第一轮评审
+# 一个标题改变了 Box 的工程性能——以下是如何
 
 > 原文：<https://review.firstround.com/one-rubric-changed-boxs-engineering-performance-heres-how>
 

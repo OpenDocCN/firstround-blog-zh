@@ -1,4 +1,4 @@
-# 在所有错误的地方寻找爱情-如何找到联合创始人|第一轮回顾
+# 在所有错误的地方寻找爱情-如何找到联合创始人
 
 > 原文：<https://review.firstround.com/Looking-for-Love-in-All-The-Wrong-Places-How-to-Find-a-Co-Founder>
 

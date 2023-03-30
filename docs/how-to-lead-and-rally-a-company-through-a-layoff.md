@@ -1,4 +1,4 @@
-# 如何通过裁员来领导和重整公司|第一轮回顾
+# 如何通过裁员来领导和重整公司
 
 > 原文：<https://review.firstround.com/how-to-lead-and-rally-a-company-through-a-layoff>
 

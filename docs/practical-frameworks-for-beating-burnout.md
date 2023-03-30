@@ -1,4 +1,4 @@
-# 战胜倦怠的实用框架|第一轮回顾
+# 战胜倦怠的实用框架
 
 > 原文：<https://review.firstround.com/practical-frameworks-for-beating-burnout>
 

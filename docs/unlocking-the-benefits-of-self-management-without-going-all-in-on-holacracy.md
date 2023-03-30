@@ -1,4 +1,4 @@
-# 释放自我管理的优势，而无需全力以赴|第一轮评估
+# 释放自我管理的优势，而无需全力以赴
 
 > 原文：<https://review.firstround.com/unlocking-the-benefits-of-self-management-without-going-all-in-on-holacracy>
 

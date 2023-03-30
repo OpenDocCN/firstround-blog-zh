@@ -1,4 +1,4 @@
-# 第一次创业的人学习一切艰难事物的指南|第一轮回顾
+# 第一次创业的人学习一切艰难事物的指南
 
 > 原文：<https://review.firstround.com/the-first-time-founders-guide-to-learning-everything-the-hard-way>
 

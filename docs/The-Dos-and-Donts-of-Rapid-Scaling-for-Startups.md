@@ -1,4 +1,4 @@
-# 创业公司快速扩张的注意事项|第一轮回顾
+# 创业公司快速扩张的注意事项
 
 > 原文：<https://review.firstround.com/The-Dos-and-Donts-of-Rapid-Scaling-for-Startups>
 

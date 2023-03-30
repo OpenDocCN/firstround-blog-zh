@@ -1,4 +1,4 @@
-# 全面人才重启——这家初创公司如何改革其员工队伍|第一轮回顾
+# 全面人才重启——这家初创公司如何改革其员工队伍
 
 > 原文：<https://review.firstround.com/the-total-talent-reboot-how-this-startup-overhauled-its-workforce>
 

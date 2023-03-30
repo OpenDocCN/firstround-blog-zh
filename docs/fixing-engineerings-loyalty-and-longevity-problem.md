@@ -1,4 +1,4 @@
-# 修复工程的忠诚度和寿命问题|第一轮审查
+# 修复工程的忠诚度和寿命问题
 
 > 原文：<https://review.firstround.com/fixing-engineerings-loyalty-and-longevity-problem>
 

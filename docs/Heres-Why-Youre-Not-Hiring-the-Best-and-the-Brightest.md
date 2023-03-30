@@ -1,4 +1,4 @@
-# 这就是为什么你没有雇用最好的和最聪明的人|第一轮审查
+# 这就是为什么你没有雇用最好的和最聪明的人
 
 > 原文：<https://review.firstround.com/Heres-Why-Youre-Not-Hiring-the-Best-and-the-Brightest>
 

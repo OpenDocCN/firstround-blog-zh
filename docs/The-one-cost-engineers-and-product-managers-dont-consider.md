@@ -1,4 +1,4 @@
-# 造价工程师和产品经理不考虑的问题|第一轮评审
+# 造价工程师和产品经理不考虑的问题
 
 > 原文：<https://review.firstround.com/The-one-cost-engineers-and-product-managers-dont-consider>
 

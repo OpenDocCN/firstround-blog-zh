@@ -1,4 +1,4 @@
-# 我发现的赢得企业交易的最可靠方法|第一轮评估
+# 我发现的赢得企业交易的最可靠方法
 
 > 原文：<https://review.firstround.com/the-most-surefire-way-ive-found-to-win-enterprise-deals>
 

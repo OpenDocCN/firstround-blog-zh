@@ -1,4 +1,4 @@
-# 从即时锅到 Instagram:创业社区建设的关键课程|第一轮回顾
+# 从即时锅到 Instagram:创业社区建设的关键课程
 
 > 原文：<https://review.firstround.com/from-instant-pot-to-instagram-critical-lessons-in-startup-community-building>
 

@@ -1,4 +1,4 @@
-# 识别和整合独立董事会成员的现场指南|第一轮审核
+# 识别和整合独立董事会成员的现场指南
 
 > 原文：<https://review.firstround.com/a-field-guide-to-identifying-and-integrating-independent-board-members>
 

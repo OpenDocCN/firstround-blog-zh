@@ -1,4 +1,4 @@
-# 当恐惧成为竞争优势时——让恐惧为你服务的 4 个步骤|第一轮回顾
+# 当恐惧成为竞争优势时——让恐惧为你服务的 4 个步骤
 
 > 原文：<https://review.firstround.com/when-fear-is-a-competitive-advantage-4-steps-to-make-it-work-for-you>
 

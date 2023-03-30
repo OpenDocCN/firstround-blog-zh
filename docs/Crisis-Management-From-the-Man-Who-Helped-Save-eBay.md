@@ -1,4 +1,4 @@
-# 危机管理——来自帮助拯救易贝的人|第一轮评论
+# 危机管理——来自帮助拯救易贝的人
 
 > 原文：<https://review.firstround.com/Crisis-Management-From-the-Man-Who-Helped-Save-eBay>
 

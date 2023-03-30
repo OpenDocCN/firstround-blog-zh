@@ -1,4 +1,4 @@
-# 向员工授予股权的正确方式|第一轮审核
+# 向员工授予股权的正确方式
 
 > 原文：<https://review.firstround.com/The-Right-Way-to-Grant-Equity-to-Your-Employees>
 

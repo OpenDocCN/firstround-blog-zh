@@ -1,4 +1,4 @@
-# 从初创公司顾问那里获得最大收益的 7 个策略|首轮评估
+# 从初创公司顾问那里获得最大收益的 7 个策略
 
 > 原文：<https://review.firstround.com/Get-the-Most-Out-of-Your-Startups-Advisors-with-These-7-Tactics>
 

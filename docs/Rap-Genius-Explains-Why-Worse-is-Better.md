@@ -1,4 +1,4 @@
-# 说唱天才解释为什么越差越好|第一轮评论
+# 说唱天才解释为什么越差越好
 
 > 原文：<https://review.firstround.com/Rap-Genius-Explains-Why-Worse-is-Better>
 

@@ -1,4 +1,4 @@
-# Chewse 如何实现透明度——从工资开始|第一轮审核
+# Chewse 如何实现透明度——从工资开始
 
 > 原文：<https://review.firstround.com/how-chewse-operationalized-transparency-starting-with-salaries>
 

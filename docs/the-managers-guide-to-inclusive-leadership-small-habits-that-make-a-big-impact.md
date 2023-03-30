@@ -1,4 +1,4 @@
-# 包容性领导的经理指南——产生巨大影响的小习惯|第一轮回顾
+# 包容性领导的经理指南——产生巨大影响的小习惯
 
 > 原文：<https://review.firstround.com/the-managers-guide-to-inclusive-leadership-small-habits-that-make-a-big-impact>
 

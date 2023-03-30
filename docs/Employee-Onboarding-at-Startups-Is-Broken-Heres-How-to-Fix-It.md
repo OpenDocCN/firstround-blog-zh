@@ -1,4 +1,4 @@
-# 初创公司的员工入职被打破了——以下是如何修复它|第一轮评估
+# 初创公司的员工入职被打破了——以下是如何修复它
 
 > 原文：<https://review.firstround.com/Employee-Onboarding-at-Startups-Is-Broken-Heres-How-to-Fix-It>
 

@@ -1,4 +1,4 @@
-# 《工程师职业成长指南》——我在 Stripe 和脸书工作期间得到的建议|第一轮回顾
+# 《工程师职业成长指南》——我在 Stripe 和脸书工作期间得到的建议
 
 > 原文：<https://review.firstround.com/the-engineers-guide-to-career-growth-advice-from-my-time-at-stripe-and-facebook>
 

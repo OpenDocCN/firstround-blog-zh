@@ -1,4 +1,4 @@
-# 创业公司健康成长需要明确的四个类别——以及如何做到这一点的顶级技巧|第一轮回顾
+# 创业公司健康成长需要明确的四个类别——以及如何做到这一点的顶级技巧
 
 > 原文：<https://review.firstround.com/four-categories-you-need-to-nail-for-healthy-startup-growth-and-top-tips-for-how-to-do-it>
 

@@ -1,4 +1,4 @@
-# 382 招聘人员如何追求一个假想工程师的内幕|首轮点评
+# 382 招聘人员如何追求一个假想工程师的内幕
 
 > 原文：<https://review.firstround.com/The-inside-story-of-how-382-recruiters-pursued-an-imaginary-engineer>
 

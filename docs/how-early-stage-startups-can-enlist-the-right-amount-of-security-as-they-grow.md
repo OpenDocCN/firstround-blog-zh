@@ -1,4 +1,4 @@
-# 初创公司如何在成长过程中获得适当的安全保障|第一轮回顾
+# 初创公司如何在成长过程中获得适当的安全保障
 
 > 原文：<https://review.firstround.com/how-early-stage-startups-can-enlist-the-right-amount-of-security-as-they-grow>
 

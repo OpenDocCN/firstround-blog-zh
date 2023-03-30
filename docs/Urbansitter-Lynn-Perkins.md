@@ -1,4 +1,4 @@
-# 这就是你如何让人们信任你的产品|第一轮审查
+# 这就是你如何让人们信任你的产品
 
 > 原文：<https://review.firstround.com/Urbansitter-Lynn-Perkins>
 

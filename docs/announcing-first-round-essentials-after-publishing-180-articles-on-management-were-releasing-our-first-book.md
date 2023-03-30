@@ -1,4 +1,4 @@
-# 发布第一轮要点——在发表了 180 多篇关于管理的文章后，我们将发布我们的第一本书|第一轮回顾
+# 发布第一轮要点——在发表了 180 多篇关于管理的文章后，我们将发布我们的第一本书
 
 > 原文：<https://review.firstround.com/announcing-first-round-essentials-after-publishing-180-articles-on-management-were-releasing-our-first-book>
 

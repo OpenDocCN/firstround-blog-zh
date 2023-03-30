@@ -1,4 +1,4 @@
-# 让你的 D&I 努力少说话多走路的八种方法|第一轮回顾
+# 让你的 D&I 努力少说话多走路的八种方法
 
 > 原文：<https://review.firstround.com/eight-ways-to-make-your-dandi-efforts-less-talk-and-more-walk>
 

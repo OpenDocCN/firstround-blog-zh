@@ -1,4 +1,4 @@
-# 定义产品设计:Airbnb 设计总监的派遣|第一轮评论
+# 定义产品设计:Airbnb 设计总监的派遣
 
 > 原文：<https://review.firstround.com/defining-product-design-a-dispatch-from-airbnbs-design-chief>
 

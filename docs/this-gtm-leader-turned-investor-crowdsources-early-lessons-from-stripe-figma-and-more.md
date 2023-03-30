@@ -1,4 +1,4 @@
-# 这个由 GTM 领导者转变为投资者的众包从 Stripe、Figma & More |第一轮审查中获得早期经验
+# 这个由 GTM 领导者转变为投资者的众包从 Stripe、Figma & More 中获得早期经验
 
 > 原文：<https://review.firstround.com/this-gtm-leader-turned-investor-crowdsources-early-lessons-from-stripe-figma-and-more>
 

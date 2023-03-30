@@ -1,4 +1,4 @@
-# Zapier 如何实现其一劳永逸的筹资方法|第一轮审查
+# Zapier 如何实现其一劳永逸的筹资方法
 
 > 原文：<https://review.firstround.com/how-zapier-pulled-off-its-one-and-done-approach-to-fundraising>
 

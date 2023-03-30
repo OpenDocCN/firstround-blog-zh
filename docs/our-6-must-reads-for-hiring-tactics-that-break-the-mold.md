@@ -1,4 +1,4 @@
-# 打破常规的招聘策略 6 必读|第一轮回顾
+# 打破常规的招聘策略 6 必读
 
 > 原文：<https://review.firstround.com/our-6-must-reads-for-hiring-tactics-that-break-the-mold>
 

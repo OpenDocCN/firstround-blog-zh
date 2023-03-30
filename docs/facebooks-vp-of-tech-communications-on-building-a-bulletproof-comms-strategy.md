@@ -1,4 +1,4 @@
-# 脸书的技术通信副总裁关于建立防弹通信战略|第一轮审查
+# 脸书的技术通信副总裁关于建立防弹通信战略
 
 > 原文：<https://review.firstround.com/facebooks-vp-of-tech-communications-on-building-a-bulletproof-comms-strategy>
 

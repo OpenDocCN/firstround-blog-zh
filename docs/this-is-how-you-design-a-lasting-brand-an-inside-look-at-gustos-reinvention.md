@@ -1,4 +1,4 @@
-# 这就是你如何设计一个持久的品牌——深入了解 Gusto 的重塑|首轮评论
+# 这就是你如何设计一个持久的品牌——深入了解 Gusto 的重塑
 
 > 原文：<https://review.firstround.com/this-is-how-you-design-a-lasting-brand-an-inside-look-at-gustos-reinvention>
 

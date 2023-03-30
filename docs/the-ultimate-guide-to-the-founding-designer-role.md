@@ -1,4 +1,4 @@
-# 创始设计师角色的终极指南|第一轮评审
+# 创始设计师角色的终极指南
 
 > 原文：<https://review.firstround.com/the-ultimate-guide-to-the-founding-designer-role>
 

@@ -1,4 +1,4 @@
-# 处理工作中情绪起伏的 6 个小步骤|第一轮回顾
+# 处理工作中情绪起伏的 6 个小步骤
 
 > 原文：<https://review.firstround.com/6-small-steps-for-handling-the-emotional-ups-and-downs-at-work>
 

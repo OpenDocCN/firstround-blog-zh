@@ -1,4 +1,4 @@
-# 如何在 Stripe、优步和 Digg 评估 Eng 领导的团队|第一轮评估
+# 如何在 Stripe、优步和 Digg 评估 Eng 领导的团队
 
 > 原文：<https://review.firstround.com/how-to-size-and-assess-teams-from-an-eng-lead-at-stripe-uber-and-digg>
 

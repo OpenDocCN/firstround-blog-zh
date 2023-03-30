@@ -1,4 +1,4 @@
-# 制定自我保健策略——为什么你应该关注界限，而不仅仅是泡泡浴|第一轮回顾
+# 制定自我保健策略——为什么你应该关注界限，而不仅仅是泡泡浴
 
 > 原文：<https://review.firstround.com/making-self-care-tactical-why-you-should-focus-on-boundaries-not-just-bubble-baths>
 

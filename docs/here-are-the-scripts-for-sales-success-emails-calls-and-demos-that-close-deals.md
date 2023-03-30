@@ -1,4 +1,4 @@
-# 以下是销售成功的脚本—达成交易的电子邮件、电话和演示|第一轮评审
+# 以下是销售成功的脚本—达成交易的电子邮件、电话和演示
 
 > 原文：<https://review.firstround.com/here-are-the-scripts-for-sales-success-emails-calls-and-demos-that-close-deals>
 

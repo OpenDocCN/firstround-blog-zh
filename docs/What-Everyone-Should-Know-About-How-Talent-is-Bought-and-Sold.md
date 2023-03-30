@@ -1,4 +1,4 @@
-# 每个人都应该知道的关于人才买卖的事情|第一轮回顾
+# 每个人都应该知道的关于人才买卖的事情
 
 > 原文：<https://review.firstround.com/What-Everyone-Should-Know-About-How-Talent-is-Bought-and-Sold>
 

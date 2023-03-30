@@ -1,4 +1,4 @@
-# 作为项目经理的首席人事官:重新思考运行公司的系统和工具|第一轮评审
+# 作为项目经理的首席人事官:重新思考运行公司的系统和工具
 
 > 原文：<https://review.firstround.com/the-chief-people-officer-as-pm:-rethinking-the-systems-and-tools-that-run-the-company>
 

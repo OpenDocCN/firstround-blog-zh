@@ -1,4 +1,4 @@
-# 使用此等式来确定、诊断和修复信任|第一轮评审
+# 使用此等式来确定、诊断和修复信任
 
 > 原文：<https://review.firstround.com/use-this-equation-to-determine-diagnose-and-repair-trust>
 

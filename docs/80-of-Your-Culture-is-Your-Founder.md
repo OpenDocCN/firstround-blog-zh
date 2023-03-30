@@ -1,4 +1,4 @@
-# 你的文化 80%是你的创始人|第一轮回顾
+# 你的文化 80%是你的创始人
 
 > 原文：<https://review.firstround.com/80-of-Your-Culture-is-Your-Founder>
 

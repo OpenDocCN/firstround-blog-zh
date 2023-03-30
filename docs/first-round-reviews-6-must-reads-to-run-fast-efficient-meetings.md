@@ -1,4 +1,4 @@
-# 第一轮评审的 6 个必读内容，以召开快速、高效的会议|第一轮评审
+# 第一轮评审的 6 个必读内容，以召开快速、高效的会议
 
 > 原文：<https://review.firstround.com/first-round-reviews-6-must-reads-to-run-fast-efficient-meetings>
 

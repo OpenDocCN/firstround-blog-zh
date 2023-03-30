@@ -1,4 +1,4 @@
-# 不是另一个 VC 博客-首轮评论|首轮评论
+# 不是另一个 VC 博客-首轮评论
 
 > 原文：<https://review.firstround.com/Not-another-VC-blog-First-Round-Review>
 

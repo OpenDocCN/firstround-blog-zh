@@ -1,4 +1,4 @@
-# 寻找创业点子的 12 个框架——给未来创业者的建议|第一轮回顾
+# 寻找创业点子的 12 个框架——给未来创业者的建议
 
 > 原文：<https://review.firstround.com/12-frameworks-for-finding-startup-ideas-advice-for-future-founders>
 

@@ -1,4 +1,4 @@
-# 用非暴力沟通原则激励你的团队|第一轮回顾
+# 用非暴力沟通原则激励你的团队
 
 > 原文：<https://review.firstround.com/power-up-your-team-with-nonviolent-communication-principles>
 

@@ -1,4 +1,4 @@
-# 如何让 OKRs 在你的创业中真正发挥作用|第一轮回顾
+# 如何让 OKRs 在你的创业中真正发挥作用
 
 > 原文：<https://review.firstround.com/How-to-Make-OKRs-Actually-Work-at-Your-Startup>
 

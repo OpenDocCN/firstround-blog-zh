@@ -1,4 +1,4 @@
-# 更好的会议创造更好的日子——与您的团队一起尝试的 20 个战术想法|第一轮回顾
+# 更好的会议创造更好的日子——与您的团队一起尝试的 20 个战术想法
 
 > 原文：<https://review.firstround.com/better-meetings-make-for-better-days-20-tactical-ideas-to-try-out-with-your-team>
 

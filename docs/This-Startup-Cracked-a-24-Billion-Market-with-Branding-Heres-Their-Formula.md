@@ -1,4 +1,4 @@
-# 这家初创公司凭借品牌效应打开了一个价值 24 亿美元的市场——这是他们的公式|第一轮评估
+# 这家初创公司凭借品牌效应打开了一个价值 24 亿美元的市场——这是他们的公式
 
 > 原文：<https://review.firstround.com/This-Startup-Cracked-a-24-Billion-Market-with-Branding-Heres-Their-Formula>
 

@@ -1,4 +1,4 @@
-# 在成为创业公司 1 至 20 名员工之前，请阅读此文|第一轮评估
+# 在成为创业公司 1 至 20 名员工之前，请阅读此文
 
 > 原文：<https://review.firstround.com/read-this-before-joining-as-employee-1-to-20-at-a-startup>
 

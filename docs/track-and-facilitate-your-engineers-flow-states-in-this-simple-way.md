@@ -1,4 +1,4 @@
-# 以这种简单的方式跟踪和促进您的工程师的流程状态|第一轮审核
+# 以这种简单的方式跟踪和促进您的工程师的流程状态
 
 > 原文：<https://review.firstround.com/track-and-facilitate-your-engineers-flow-states-in-this-simple-way>
 

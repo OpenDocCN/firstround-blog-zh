@@ -1,4 +1,4 @@
-# 创业公司在构建移动平台时犯的五个错误|第一轮回顾
+# 创业公司在构建移动平台时犯的五个错误
 
 > 原文：<https://review.firstround.com/What-you-think-you-know-about-mobile-engineering-is-wrong>
 

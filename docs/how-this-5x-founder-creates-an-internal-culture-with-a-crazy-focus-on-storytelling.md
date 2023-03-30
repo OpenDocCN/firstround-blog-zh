@@ -1,4 +1,4 @@
-# 这位 5X 创始人如何创造一种“疯狂关注”讲故事的内部文化|第一轮回顾
+# 这位 5X 创始人如何创造一种“疯狂关注”讲故事的内部文化
 
 > 原文：<https://review.firstround.com/how-this-5x-founder-creates-an-internal-culture-with-a-crazy-focus-on-storytelling>
 

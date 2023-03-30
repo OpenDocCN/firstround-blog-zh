@@ -1,4 +1,4 @@
-# 由于入职销售不佳，你损失了数十万美元|第一轮评估
+# 由于入职销售不佳，你损失了数十万美元
 
 > 原文：<https://review.firstround.com/youre-losing-hundreds-of-thousands-of-dollars-because-of-poor-sales-onboarding>
 

@@ -1,4 +1,4 @@
-# 如何持续聘用卓越的数据科学家|第一轮回顾
+# 如何持续聘用卓越的数据科学家
 
 > 原文：<https://review.firstround.com/how-to-consistently-hire-remarkable-data-scientists>
 

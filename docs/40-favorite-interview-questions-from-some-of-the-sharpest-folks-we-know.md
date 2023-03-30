@@ -1,4 +1,4 @@
-# 我们所知道的一些最敏锐的人最喜欢的 40 个面试问题|第一轮评论
+# 我们所知道的一些最敏锐的人最喜欢的 40 个面试问题
 
 > 原文：<https://review.firstround.com/40-favorite-interview-questions-from-some-of-the-sharpest-folks-we-know>
 

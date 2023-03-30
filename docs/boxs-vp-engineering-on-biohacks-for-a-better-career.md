@@ -1,4 +1,4 @@
-# Box 工程副总裁谈生物黑客为更好的职业生涯|第一轮审查
+# Box 工程副总裁谈生物黑客为更好的职业生涯
 
 > 原文：<https://review.firstround.com/boxs-vp-engineering-on-biohacks-for-a-better-career>
 

@@ -1,4 +1,4 @@
-# 通过 Twitter 的工程 SVP 释放稳定团队的力量|首轮评审
+# 通过 Twitter 的工程 SVP 释放稳定团队的力量
 
 > 原文：<https://review.firstround.com/Twitter-Engineering-SVP-Chris-Fry-on-the-Power-of-Stable-Teams>
 

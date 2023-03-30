@@ -1,4 +1,4 @@
-# 90%的反馈都是废话:如何找到下一个大的创业想法|第一轮回顾
+# 90%的反馈都是废话:如何找到下一个大的创业想法
 
 > 原文：<https://review.firstround.com/90-of-feedback-is-crap-how-to-find-the-next-big-startup-idea>
 

@@ -1,4 +1,4 @@
-# 让亚历克西斯·奥哈尼安成为当今领袖的禁忌|第一轮回顾
+# 让亚历克西斯·奥哈尼安成为当今领袖的禁忌
 
 > 原文：<https://review.firstround.com/the-donts-that-turned-alexis-ohanian-into-the-leader-he-is-today>
 

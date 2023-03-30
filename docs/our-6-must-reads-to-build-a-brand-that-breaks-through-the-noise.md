@@ -1,4 +1,4 @@
-# 我们的 6 个必读书目，打造突破噪音的品牌|首轮评论
+# 我们的 6 个必读书目，打造突破噪音的品牌
 
 > 原文：<https://review.firstround.com/our-6-must-reads-to-build-a-brand-that-breaks-through-the-noise>
 

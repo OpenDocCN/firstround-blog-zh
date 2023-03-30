@@ -1,4 +1,4 @@
-# 关注你的前 10 个系统，而不仅仅是你的前 10 个雇员——这位参谋长分享了他的剧本|第一轮回顾
+# 关注你的前 10 个系统，而不仅仅是你的前 10 个雇员——这位参谋长分享了他的剧本
 
 > 原文：<https://review.firstround.com/focus-on-your-first-10-systems-not-just-your-first-10-hires-this-chief-of-staff-shares-his-playbook>
 

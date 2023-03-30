@@ -1,4 +1,4 @@
-# 来自微软、Looker、Reddit & Twitter 的“离开地板”和其他职业建议|第一轮评论
+# 来自微软、Looker、Reddit & Twitter 的“离开地板”和其他职业建议
 
 > 原文：<https://review.firstround.com/get-off-the-floor-and-other-career-advice-from-microsoft-looker-reddit-and-twitter>
 

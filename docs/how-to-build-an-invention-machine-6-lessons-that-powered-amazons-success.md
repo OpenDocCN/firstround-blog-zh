@@ -1,4 +1,4 @@
-# 如何建造一台发明机器——亚马逊成功的 6 个教训|第一轮回顾
+# 如何建造一台发明机器——亚马逊成功的 6 个教训
 
 > 原文：<https://review.firstround.com/how-to-build-an-invention-machine-6-lessons-that-powered-amazons-success>
 

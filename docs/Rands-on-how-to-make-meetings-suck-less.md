@@ -1,4 +1,4 @@
-# 如何让会议变得不那么糟糕|第一轮回顾
+# 如何让会议变得不那么糟糕
 
 > 原文：<https://review.firstround.com/Rands-on-how-to-make-meetings-suck-less>
 

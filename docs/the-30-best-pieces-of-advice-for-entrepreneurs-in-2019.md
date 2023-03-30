@@ -1,4 +1,4 @@
-# 2019 年给创业者的 30 条最佳建议|首轮回顾
+# 2019 年给创业者的 30 条最佳建议
 
 > 原文：<https://review.firstround.com/the-30-best-pieces-of-advice-for-entrepreneurs-in-2019>
 

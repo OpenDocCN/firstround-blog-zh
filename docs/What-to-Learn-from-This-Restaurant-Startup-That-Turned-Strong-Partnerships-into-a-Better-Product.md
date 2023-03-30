@@ -1,4 +1,4 @@
-# 这就是你如何建立合作关系，让你的创业更好、更快、更强|第一轮评审
+# 这就是你如何建立合作关系，让你的创业更好、更快、更强
 
 > 原文：<https://review.firstround.com/What-to-Learn-from-This-Restaurant-Startup-That-Turned-Strong-Partnerships-into-a-Better-Product>
 

@@ -1,4 +1,4 @@
-# 寻找语言/市场契合度:如何让客户觉得你读懂了他们的心思|第一轮回顾
+# 寻找语言/市场契合度:如何让客户觉得你读懂了他们的心思
 
 > 原文：<https://review.firstround.com/finding-language-market-fit-how-to-make-customers-feel-like-youve-read-their-minds>
 

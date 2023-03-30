@@ -1,4 +1,4 @@
-# 卓越产品原型的六个步骤:来自苹果和 Oculus 工程师的教训|第一轮评论
+# 卓越产品原型的六个步骤:来自苹果和 Oculus 工程师的教训
 
 > 原文：<https://review.firstround.com/six-steps-to-superior-product-prototyping-lessons-from-an-apple-and-oculus-engineer>
 

@@ -1,4 +1,4 @@
-# 用这个系统清理团队中有害的人际关系|第一轮评估
+# 用这个系统清理团队中有害的人际关系
 
 > 原文：<https://review.firstround.com/clean-up-corrosive-interpersonal-dynamics-on-your-team-with-this-system>
 

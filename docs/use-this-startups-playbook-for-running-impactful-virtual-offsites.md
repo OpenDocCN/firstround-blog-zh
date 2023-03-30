@@ -1,4 +1,4 @@
-# 使用这家创业公司的剧本运行有影响力的虚拟场外|首轮审查
+# 使用这家创业公司的剧本运行有影响力的虚拟场外
 
 > 原文：<https://review.firstround.com/use-this-startups-playbook-for-running-impactful-virtual-offsites>
 

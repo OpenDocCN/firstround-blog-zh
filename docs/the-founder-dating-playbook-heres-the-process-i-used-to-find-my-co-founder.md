@@ -1,4 +1,4 @@
-# 创始人约会手册——这是我用来寻找我的联合创始人的过程|第一轮回顾
+# 创始人约会手册——这是我用来寻找我的联合创始人的过程
 
 > 原文：<https://review.firstround.com/the-founder-dating-playbook-heres-the-process-i-used-to-find-my-co-founder>
 

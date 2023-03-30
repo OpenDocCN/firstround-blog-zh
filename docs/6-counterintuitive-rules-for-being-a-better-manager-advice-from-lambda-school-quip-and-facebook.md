@@ -1,4 +1,4 @@
-# 成为更好的管理者的 6 条违反直觉的规则——来自 Lambda School、Quip &脸书的建议|第一轮回顾
+# 成为更好的管理者的 6 条违反直觉的规则——来自 Lambda School、Quip &脸书的建议
 
 > 原文：<https://review.firstround.com/6-counterintuitive-rules-for-being-a-better-manager-advice-from-lambda-school-quip-and-facebook>
 

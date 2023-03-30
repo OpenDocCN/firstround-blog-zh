@@ -1,4 +1,4 @@
-# 建立和领导产品设计团队的 6 个必读书目|第一轮回顾
+# 建立和领导产品设计团队的 6 个必读书目
 
 > 原文：<https://review.firstround.com/our-6-must-reads-for-building-and-leading-a-product-design-team>
 

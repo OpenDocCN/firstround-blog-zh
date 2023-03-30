@@ -1,4 +1,4 @@
-# Reddit 和脸书资深人士讲述如何解决麻烦制造者|首轮评论
+# Reddit 和脸书资深人士讲述如何解决麻烦制造者
 
 > 原文：<https://review.firstround.com/reddit-and-facebook-veteran-on-how-to-troubleshoot-troublemakers>
 

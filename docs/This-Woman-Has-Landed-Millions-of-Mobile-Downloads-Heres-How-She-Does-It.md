@@ -1,4 +1,4 @@
-# 这位女士已经安装了数百万个应用程序——她是如何做到的|第一轮评论
+# 这位女士已经安装了数百万个应用程序——她是如何做到的
 
 > 原文：<https://review.firstround.com/This-Woman-Has-Landed-Millions-of-Mobile-Downloads-Heres-How-She-Does-It>
 

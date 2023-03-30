@@ -1,4 +1,4 @@
-# “成为合伙人”在初创公司意味着什么|第一轮评估
+# “成为合伙人”在初创公司意味着什么
 
 > 原文：<https://review.firstround.com/What-making-partner-means-at-a-startup>
 

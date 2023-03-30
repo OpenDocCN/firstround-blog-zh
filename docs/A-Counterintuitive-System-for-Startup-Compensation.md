@@ -1,4 +1,4 @@
-# 创业补偿的反直觉系统|第一轮回顾
+# 创业补偿的反直觉系统
 
 > 原文：<https://review.firstround.com/A-Counterintuitive-System-for-Startup-Compensation>
 

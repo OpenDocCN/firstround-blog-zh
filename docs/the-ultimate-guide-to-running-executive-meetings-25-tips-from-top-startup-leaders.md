@@ -1,4 +1,4 @@
-# 管理高管会议的终极指南——来自初创公司高层领导的 25 条建议|第一轮回顾
+# 管理高管会议的终极指南——来自初创公司高层领导的 25 条建议
 
 > 原文：<https://review.firstround.com/the-ultimate-guide-to-running-executive-meetings-25-tips-from-top-startup-leaders>
 

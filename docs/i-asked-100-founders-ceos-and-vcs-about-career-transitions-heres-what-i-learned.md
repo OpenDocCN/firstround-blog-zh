@@ -1,4 +1,4 @@
-# 我问了 100 位创始人、首席执行官和风投关于职业转型的问题——以下是我学到的东西|第一轮回顾
+# 我问了 100 位创始人、首席执行官和风投关于职业转型的问题——以下是我学到的东西
 
 > 原文：<https://review.firstround.com/i-asked-100-founders-ceos-and-vcs-about-career-transitions-heres-what-i-learned>
 

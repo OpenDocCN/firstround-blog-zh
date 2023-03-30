@@ -1,4 +1,4 @@
-# 可以改变产品发布方式的简单规则|第一轮评审
+# 可以改变产品发布方式的简单规则
 
 > 原文：<https://review.firstround.com/the-simple-rules-that-could-transform-how-you-launch-your-product>
 

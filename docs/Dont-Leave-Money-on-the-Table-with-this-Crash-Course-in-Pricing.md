@@ -1,4 +1,4 @@
-# 不要把钱留在定价速成班的桌子上|第一轮复习
+# 不要把钱留在定价速成班的桌子上
 
 > 原文：<https://review.firstround.com/Dont-Leave-Money-on-the-Table-with-this-Crash-Course-in-Pricing>
 

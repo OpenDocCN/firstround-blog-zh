@@ -1,4 +1,4 @@
-# 亚马逊让产品更无缝的摩擦扼杀策略|首轮评论
+# 亚马逊让产品更无缝的摩擦扼杀策略
 
 > 原文：<https://review.firstround.com/amazons-friction-killing-tactics-to-make-products-more-seamless>
 

@@ -1,4 +1,4 @@
-# Expensify 首席执行官谈在短短六个月内将其客户群翻倍的策略|第一轮评论
+# Expensify 首席执行官谈在短短六个月内将其客户群翻倍的策略
 
 > 原文：<https://review.firstround.com/expensifys-ceo-on-the-tactics-that-doubled-its-customer-base-in-just-six-months>
 

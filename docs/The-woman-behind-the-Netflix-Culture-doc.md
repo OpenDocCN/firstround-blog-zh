@@ -1,4 +1,4 @@
-# 网飞文化背后的女人 Doc |第一轮回顾
+# 网飞文化背后的女人 Doc 
 
 > 原文：<https://review.firstround.com/The-woman-behind-the-Netflix-Culture-doc>
 

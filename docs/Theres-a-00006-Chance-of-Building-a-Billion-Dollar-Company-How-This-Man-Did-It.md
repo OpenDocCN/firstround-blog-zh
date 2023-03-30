@@ -1,4 +1,4 @@
-# 有 0.00006%的机会建立一个 10 亿美元的公司:这个人是如何做到的|首轮评论
+# 有 0.00006%的机会建立一个 10 亿美元的公司:这个人是如何做到的
 
 > 原文：<https://review.firstround.com/Theres-a-00006-Chance-of-Building-a-Billion-Dollar-Company-How-This-Man-Did-It>
 

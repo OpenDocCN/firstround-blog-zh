@@ -1,4 +1,4 @@
-# Planet Labs 通过该计划将实习生培养成了公司领导者|第一轮评审
+# Planet Labs 通过该计划将实习生培养成了公司领导者
 
 > 原文：<https://review.firstround.com/planet-labs-turned-its-interns-into-company-leaders-with-this-program>
 

@@ -1,4 +1,4 @@
-# 放弃效率可以加速您的公司——以下是如何|第一轮评估
+# 放弃效率可以加速您的公司——以下是如何
 
 > 原文：<https://review.firstround.com/Responsiveness-New-Efficiency>
 

@@ -1,4 +1,4 @@
-# 我们关于内容营销的 6 篇必读文章|第一轮评论
+# 我们关于内容营销的 6 篇必读文章
 
 > 原文：<https://review.firstround.com/our-6-must-reads-on-content-marketing>
 

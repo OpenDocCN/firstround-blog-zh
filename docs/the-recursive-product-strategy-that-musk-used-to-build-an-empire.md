@@ -1,4 +1,4 @@
-# 马斯克用来建立帝国的递归产品策略|首轮评论
+# 马斯克用来建立帝国的递归产品策略
 
 > 原文：<https://review.firstround.com/the-recursive-product-strategy-that-musk-used-to-build-an-empire>
 

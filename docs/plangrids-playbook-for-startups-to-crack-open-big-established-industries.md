@@ -1,4 +1,4 @@
-# PlanGrid 为创业公司提供的破解大型成熟行业的剧本|第一轮评论
+# PlanGrid 为创业公司提供的破解大型成熟行业的剧本
 
 > 原文：<https://review.firstround.com/plangrids-playbook-for-startups-to-crack-open-big-established-industries>
 

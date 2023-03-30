@@ -1,4 +1,4 @@
-# 帮助每月达到 2000 万访问量的 SEO 技巧|第一轮评论
+# 帮助每月达到 2000 万访问量的 SEO 技巧
 
 > 原文：<https://review.firstround.com/the-seo-tips-that-helped-tally-20-million-visits-a-month>
 

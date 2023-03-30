@@ -1,4 +1,4 @@
-# 我们在第一轮 CTO 会议上听到的最佳建议|第一轮评审
+# 我们在第一轮 CTO 会议上听到的最佳建议
 
 > 原文：<https://review.firstround.com/the-best-advice-we-overheard-at-first-rounds-cto-unconference>
 

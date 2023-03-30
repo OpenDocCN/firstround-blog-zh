@@ -1,4 +1,4 @@
-# 推动 LinkedIn 成为 200 亿美元公司的管理框架|第一轮评估
+# 推动 LinkedIn 成为 200 亿美元公司的管理框架
 
 > 原文：<https://review.firstround.com/the-management-framework-that-propelled-LinkedIn-to-a-20-billion-company>
 

@@ -1,4 +1,4 @@
-# 从我在 Pandora 的经历来看产品领导法则|第一轮回顾
+# 从我在 Pandora 的经历来看产品领导法则
 
 > 原文：<https://review.firstround.com/product-leadership-rules-to-live-by-from-my-experience-at-pandora>
 

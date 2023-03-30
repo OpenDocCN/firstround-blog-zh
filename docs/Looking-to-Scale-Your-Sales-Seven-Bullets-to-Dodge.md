@@ -1,4 +1,4 @@
-# 想扩大销售规模吗？躲避七颗子弹|第一轮回顾
+# 想扩大销售规模吗？躲避七颗子弹
 
 > 原文：<https://review.firstround.com/Looking-to-Scale-Your-Sales-Seven-Bullets-to-Dodge>
 

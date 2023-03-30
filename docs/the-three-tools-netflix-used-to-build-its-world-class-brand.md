@@ -1,4 +1,4 @@
-# 网飞打造世界级品牌的三大工具|第一轮回顾
+# 网飞打造世界级品牌的三大工具
 
 > 原文：<https://review.firstround.com/the-three-tools-netflix-used-to-build-its-world-class-brand>
 

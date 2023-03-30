@@ -1,4 +1,4 @@
-# 从 C++到 C-Suite:软件工程如何让我成为更好的执行官|第一轮回顾
+# 从 C++到 C-Suite:软件工程如何让我成为更好的执行官
 
 > 原文：<https://review.firstround.com/from-c-to-the-c-suite-how-software-engineering-made-me-a-better-executive>
 

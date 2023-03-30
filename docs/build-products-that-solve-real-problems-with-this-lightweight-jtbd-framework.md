@@ -1,4 +1,4 @@
-# 使用这个轻量级 JTBD 框架构建解决实际问题的产品|第一轮评审
+# 使用这个轻量级 JTBD 框架构建解决实际问题的产品
 
 > 原文：<https://review.firstround.com/build-products-that-solve-real-problems-with-this-lightweight-jtbd-framework>
 

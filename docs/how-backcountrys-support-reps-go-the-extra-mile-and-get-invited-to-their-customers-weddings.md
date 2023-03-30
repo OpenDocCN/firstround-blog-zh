@@ -1,4 +1,4 @@
-# Backcountry 的支持代表如何走得更远，并被邀请参加他们客户的婚礼|第一轮评论
+# Backcountry 的支持代表如何走得更远，并被邀请参加他们客户的婚礼
 
 > 原文：<https://review.firstround.com/how-backcountrys-support-reps-go-the-extra-mile-and-get-invited-to-their-customers-weddings>
 

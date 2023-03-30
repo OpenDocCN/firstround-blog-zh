@@ -1,4 +1,4 @@
-# 与 30 多家种子和 A 轮 B2B 创业公司合作的定价经验|第一轮评估
+# 与 30 多家种子和 A 轮 B2B 创业公司合作的定价经验
 
 > 原文：<https://review.firstround.com/pricing-lessons-from-working-with-30-seed-and-series-a-b2b-startups>
 

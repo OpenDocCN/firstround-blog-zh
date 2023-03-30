@@ -1,4 +1,4 @@
-# 高速增长做得对——从 Dropbox 和脸书的工程师身上得到的教训|第一轮评论
+# 高速增长做得对——从 Dropbox 和脸书的工程师身上得到的教训
 
 > 原文：<https://review.firstround.com/Hyper-Growth-Done-Right-Lessons-From-the-Man-Who-Scaled-Engineering-at-Dropbox-and-Facebook>
 

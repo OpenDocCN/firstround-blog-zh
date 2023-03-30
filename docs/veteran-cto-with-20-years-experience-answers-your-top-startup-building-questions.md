@@ -1,4 +1,4 @@
-# 经验丰富的首席技术官(多次成功退出)回答您最关心的创业问题|第一轮回顾
+# 经验丰富的首席技术官(多次成功退出)回答您最关心的创业问题
 
 > 原文：<https://review.firstround.com/veteran-cto-with-20-years-experience-answers-your-top-startup-building-questions>
 

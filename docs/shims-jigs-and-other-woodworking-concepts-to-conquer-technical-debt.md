@@ -1,4 +1,4 @@
-# 垫片，夹具和其他木工概念征服技术债务|第一轮审查
+# 垫片，夹具和其他木工概念征服技术债务
 
 > 原文：<https://review.firstround.com/shims-jigs-and-other-woodworking-concepts-to-conquer-technical-debt>
 

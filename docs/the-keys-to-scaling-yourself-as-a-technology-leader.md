@@ -1,4 +1,4 @@
-# 成为技术领导者的关键|第一轮评估
+# 成为技术领导者的关键
 
 > 原文：<https://review.firstround.com/the-keys-to-scaling-yourself-as-a-technology-leader>
 

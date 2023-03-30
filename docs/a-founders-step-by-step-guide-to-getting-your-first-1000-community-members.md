@@ -1,4 +1,4 @@
-# 创始人的一步一步指南，让你的第一个 1000 社区成员|第一轮审查
+# 创始人的一步一步指南，让你的第一个 1000 社区成员
 
 > 原文：<https://review.firstround.com/a-founders-step-by-step-guide-to-getting-your-first-1000-community-members>
 

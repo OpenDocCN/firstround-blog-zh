@@ -1,4 +1,4 @@
-# 为什么定性市场研究属于你的创业工具包——以及如何有效运用它|第一轮回顾
+# 为什么定性市场研究属于你的创业工具包——以及如何有效运用它
 
 > 原文：<https://review.firstround.com/why-qualitative-market-research-belongs-in-your-startup-toolkit-and-how-to-wield-it-effectively>
 

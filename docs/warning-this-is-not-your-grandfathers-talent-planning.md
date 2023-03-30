@@ -1,4 +1,4 @@
-# 警告:这不是你爷爷的人才规划|首轮审核
+# 警告:这不是你爷爷的人才规划
 
 > 原文：<https://review.firstround.com/warning-this-is-not-your-grandfathers-talent-planning>
 

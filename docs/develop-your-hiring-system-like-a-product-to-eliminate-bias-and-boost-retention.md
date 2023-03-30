@@ -1,4 +1,4 @@
-# 像开发产品一样开发你的招聘系统，以消除偏见，提高保留率|第一轮评估
+# 像开发产品一样开发你的招聘系统，以消除偏见，提高保留率
 
 > 原文：<https://review.firstround.com/develop-your-hiring-system-like-a-product-to-eliminate-bias-and-boost-retention>
 

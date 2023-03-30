@@ -1,4 +1,4 @@
-# 如何建立有价值的关系——来自硅谷资深人士(内向者)的建议|第一轮评论
+# 如何建立有价值的关系——来自硅谷资深人士(内向者)的建议
 
 > 原文：<https://review.firstround.com/how-to-make-connections-that-count-advice-from-a-silicon-valley-veteran-and-introvert>
 

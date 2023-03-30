@@ -1,4 +1,4 @@
-# 量子团队管理的原则|第一轮回顾
+# 量子团队管理的原则
 
 > 原文：<https://review.firstround.com/the-principles-of-quantum-team-management>
 

@@ -1,4 +1,4 @@
-# 当斯考特·库克创建 Intuit | First Round Review 时，他希望自己了解的首席执行官是什么
+# 当斯考特·库克创建 Intuit  时，他希望自己了解的首席执行官是什么
 
 > 原文：<https://review.firstround.com/What-Scott-Cook-Wished-He-Knew-About-Being-a-CEO-When-He-Founded-Intuit>
 

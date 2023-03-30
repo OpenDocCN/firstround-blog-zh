@@ -1,4 +1,4 @@
-# 这位创始人在 2008 年、2016 年和 2018 年建立了初创公司。以下是他对弹性的了解|第一轮评估
+# 这位创始人在 2008 年、2016 年和 2018 年建立了初创公司。以下是他对弹性的了解
 
 > 原文：<https://review.firstround.com/this-founder-built-startups-in-2008-2016-and-2018-heres-what-hes-learned-about-resiliency>
 

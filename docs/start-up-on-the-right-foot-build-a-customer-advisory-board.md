@@ -1,4 +1,4 @@
-# 良好的开端—建立客户顾问委员会|第一轮评审
+# 良好的开端—建立客户顾问委员会
 
 > 原文：<https://review.firstround.com/start-up-on-the-right-foot-build-a-customer-advisory-board>
 

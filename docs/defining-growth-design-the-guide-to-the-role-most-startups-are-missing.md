@@ -1,4 +1,4 @@
-# 定义成长型设计:大多数创业公司都忽略的角色指南|第一轮回顾
+# 定义成长型设计:大多数创业公司都忽略的角色指南
 
 > 原文：<https://review.firstround.com/defining-growth-design-the-guide-to-the-role-most-startups-are-missing>
 

@@ -1,4 +1,4 @@
-# Food52 如何在内容和商业之间取得平衡|第一轮评论
+# Food52 如何在内容和商业之间取得平衡
 
 > 原文：<https://review.firstround.com/how-food52-strikes-a-winning-balance-between-content-and-commerce>
 

@@ -1,4 +1,4 @@
-# 平方默认值使用此系统很难做出决定—以下是如何|第一轮审核
+# 平方默认值使用此系统很难做出决定—以下是如何
 
 > 原文：<https://review.firstround.com/square-defangs-difficult-decisions-with-this-system-heres-how>
 

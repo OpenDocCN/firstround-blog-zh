@@ -1,4 +1,4 @@
-# 现代经理人不可或缺的文件|第一轮评估
+# 现代经理人不可或缺的文件
 
 > 原文：<https://review.firstround.com/the-indispensable-document-for-the-modern-manager>
 

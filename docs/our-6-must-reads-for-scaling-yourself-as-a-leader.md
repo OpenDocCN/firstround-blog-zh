@@ -1,4 +1,4 @@
-# 成为领导者的 6 个必读书目|第一轮评估
+# 成为领导者的 6 个必读书目
 
 > 原文：<https://review.firstround.com/our-6-must-reads-for-scaling-yourself-as-a-leader>
 

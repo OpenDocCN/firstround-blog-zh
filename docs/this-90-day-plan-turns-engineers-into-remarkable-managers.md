@@ -1,4 +1,4 @@
-# 这个 90 天的计划将工程师变成卓越的管理者|第一轮回顾
+# 这个 90 天的计划将工程师变成卓越的管理者
 
 > 原文：<https://review.firstround.com/this-90-day-plan-turns-engineers-into-remarkable-managers>
 

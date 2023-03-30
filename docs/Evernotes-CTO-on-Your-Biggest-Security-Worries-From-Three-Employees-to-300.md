@@ -1,4 +1,4 @@
-# Evernote 首席技术官谈 3 到 300 名员工最大的安全隐患|第一轮评估
+# Evernote 首席技术官谈 3 到 300 名员工最大的安全隐患
 
 > 原文：<https://review.firstround.com/Evernotes-CTO-on-Your-Biggest-Security-Worries-From-Three-Employees-to-300>
 

@@ -1,4 +1,4 @@
-# 初创公司最常犯的沟通错误——以及如何避免它们|第一轮回顾
+# 初创公司最常犯的沟通错误——以及如何避免它们
 
 > 原文：<https://review.firstround.com/the-top-comms-mistakes-startups-make-and-how-to-avoid-them>
 

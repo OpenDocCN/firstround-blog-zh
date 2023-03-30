@@ -1,4 +1,4 @@
-# 当你是他们唯一的设计师时该怎么做|第一轮评审
+# 当你是他们唯一的设计师时该怎么做
 
 > 原文：<https://review.firstround.com/What-to-Do-When-Youre-the-Only-Designer-Theyve-Got>
 

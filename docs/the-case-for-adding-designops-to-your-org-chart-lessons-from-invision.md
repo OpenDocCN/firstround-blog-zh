@@ -1,4 +1,4 @@
-# 向您的组织结构图中添加设计方案的案例—来自 Vision 的经验教训|第一轮评审
+# 向您的组织结构图中添加设计方案的案例—来自 Vision 的经验教训
 
 > 原文：<https://review.firstround.com/the-case-for-adding-designops-to-your-org-chart-lessons-from-invision>
 

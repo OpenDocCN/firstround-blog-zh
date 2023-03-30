@@ -1,4 +1,4 @@
-# 团队健康监控和为什么你的创业需要检查|第一轮审查
+# 团队健康监控和为什么你的创业需要检查
 
 > 原文：<https://review.firstround.com/team-health-monitors-and-why-your-startup-needs-a-check-up>
 

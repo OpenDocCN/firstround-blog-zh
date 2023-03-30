@@ -1,4 +1,4 @@
-# 我们研究了 100 对导师-学员配对——以下是如何让导师工作的|第一轮回顾
+# 我们研究了 100 对导师-学员配对——以下是如何让导师工作的
 
 > 原文：<https://review.firstround.com/we-studied-100-mentor-mentee-matches-heres-what-makes-mentorship-work>
 

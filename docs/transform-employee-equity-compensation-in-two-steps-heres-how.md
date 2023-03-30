@@ -1,4 +1,4 @@
-# 分两步转变员工股权薪酬-以下是如何进行的|第一轮审核
+# 分两步转变员工股权薪酬-以下是如何进行的
 
 > 原文：<https://review.firstround.com/transform-employee-equity-compensation-in-two-steps-heres-how>
 

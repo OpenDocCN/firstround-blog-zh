@@ -1,4 +1,4 @@
-# Mint 的首席设计师解释了为什么伟大的设计不是让事物变得漂亮|第一轮评论
+# Mint 的首席设计师解释了为什么伟大的设计不是让事物变得漂亮
 
 > 原文：<https://review.firstround.com/Head-Designer-of-Mint-on-Why-Great-Design-isnt-about-Making-Things-Pretty>
 

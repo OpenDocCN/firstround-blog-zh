@@ -1,4 +1,4 @@
-# 不要只是建立关系网——建立你的“有意义的关系网”来最大化你的影响力|第一轮评估
+# 不要只是建立关系网——建立你的“有意义的关系网”来最大化你的影响力
 
 > 原文：<https://review.firstround.com/dont-just-network-build-your-meaningful-network-to-maximize-your-impact>
 

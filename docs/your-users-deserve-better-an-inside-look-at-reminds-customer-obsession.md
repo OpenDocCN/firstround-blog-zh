@@ -1,4 +1,4 @@
-# 您的用户值得更好的服务——深入了解 Remind 的客户困扰|第一轮评论
+# 您的用户值得更好的服务——深入了解 Remind 的客户困扰
 
 > 原文：<https://review.firstround.com/your-users-deserve-better-an-inside-look-at-reminds-customer-obsession>
 

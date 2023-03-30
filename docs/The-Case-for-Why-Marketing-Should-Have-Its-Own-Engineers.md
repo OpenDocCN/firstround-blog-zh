@@ -1,4 +1,4 @@
-# 为什么营销应该有自己的工程师|第一轮审查
+# 为什么营销应该有自己的工程师
 
 > 原文：<https://review.firstround.com/The-Case-for-Why-Marketing-Should-Have-Its-Own-Engineers>
 

@@ -1,4 +1,4 @@
-# 要想发展得更快，请点击“暂停”——并从 Stripe 的首席运营官|第一轮评估中提出这些问题
+# 要想发展得更快，请点击“暂停”——并从 Stripe 的首席运营官中提出这些问题
 
 > 原文：<https://review.firstround.com/to-grow-faster-hit-pause-and-ask-these-questions-from-stripes-coo>
 

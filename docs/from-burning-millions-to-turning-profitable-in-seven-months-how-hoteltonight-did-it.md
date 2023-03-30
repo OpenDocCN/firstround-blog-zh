@@ -1,4 +1,4 @@
-# 从烧钱百万到七个月扭亏为盈 HotelTonight 是如何做到的|第一轮回顾
+# 从烧钱百万到七个月扭亏为盈 HotelTonight 是如何做到的
 
 > 原文：<https://review.firstround.com/from-burning-millions-to-turning-profitable-in-seven-months-how-hoteltonight-did-it>
 

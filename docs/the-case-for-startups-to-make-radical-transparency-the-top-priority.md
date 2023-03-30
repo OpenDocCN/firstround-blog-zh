@@ -1,4 +1,4 @@
-# 创业公司将彻底透明作为首要任务的理由|第一轮审查
+# 创业公司将彻底透明作为首要任务的理由
 
 > 原文：<https://review.firstround.com/the-case-for-startups-to-make-radical-transparency-the-top-priority>
 

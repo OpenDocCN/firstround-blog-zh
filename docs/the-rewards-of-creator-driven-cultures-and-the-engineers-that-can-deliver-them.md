@@ -1,4 +1,4 @@
-# 创造者驱动的文化的回报——以及能够实现这些回报的工程师|第一轮评审
+# 创造者驱动的文化的回报——以及能够实现这些回报的工程师
 
 > 原文：<https://review.firstround.com/the-rewards-of-creator-driven-cultures-and-the-engineers-that-can-deliver-them>
 

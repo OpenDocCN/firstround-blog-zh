@@ -1,4 +1,4 @@
-# 创业故事的七宗罪|第一轮回顾
+# 创业故事的七宗罪
 
 > 原文：<https://review.firstround.com/The-Seven-Deadly-Sins-of-Startup-Storytelling>
 

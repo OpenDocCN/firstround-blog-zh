@@ -1,4 +1,4 @@
-# 从比尔·格罗斯的 35 次首次公开募股/退出和 40 次失败中吸取的经验教训|首轮审查
+# 从比尔·格罗斯的 35 次首次公开募股/退出和 40 次失败中吸取的经验教训
 
 > 原文：<https://review.firstround.com/Lessons-Learned-from-Bill-Gross-35-IPOs-and-40-Failures>
 

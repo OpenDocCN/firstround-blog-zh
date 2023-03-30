@@ -1,4 +1,4 @@
-# 作为一个远程工作的大型团队，努力发展壮大？这位高管有您需要的现场指南|第一轮评审
+# 作为一个远程工作的大型团队，努力发展壮大？这位高管有您需要的现场指南
 
 > 原文：<https://review.firstround.com/struggling-to-thrive-as-a-large-team-working-remotely-this-exec-has-the-field-guide-you-need>
 

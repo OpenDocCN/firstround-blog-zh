@@ -1,4 +1,4 @@
-# 寻找创业想法并在严格监管的空间中进行建设 Cash App 和 Carbon Health 的经验教训|第一轮回顾
+# 寻找创业想法并在严格监管的空间中进行建设 Cash App 和 Carbon Health 的经验教训
 
 > 原文：<https://review.firstround.com/finding-startup-ideas-and-building-in-heavily-regulated-spaces-lessons-from-cash-app-and-carbon-health>
 

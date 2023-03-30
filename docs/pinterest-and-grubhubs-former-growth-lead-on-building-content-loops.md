@@ -1,4 +1,4 @@
-# Pinterest 和 Grubhub 在构建内容循环方面的增长领先|第一轮评论
+# Pinterest 和 Grubhub 在构建内容循环方面的增长领先
 
 > 原文：<https://review.firstround.com/pinterest-and-grubhubs-former-growth-lead-on-building-content-loops>
 

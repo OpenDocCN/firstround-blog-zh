@@ -1,4 +1,4 @@
-# 来自技术顶级媒体培训师和演讲蔻驰的强大技巧|第一轮评论
+# 来自技术顶级媒体培训师和演讲蔻驰的强大技巧
 
 > 原文：<https://review.firstround.com/Powerful-Tips-from-Techs-Top-Media-Trainer-and-Speaking-Coach>
 

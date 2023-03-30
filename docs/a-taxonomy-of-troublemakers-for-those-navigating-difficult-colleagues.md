@@ -1,4 +1,4 @@
-# 针对那些难以相处的同事的麻烦制造者分类|第一轮评估
+# 针对那些难以相处的同事的麻烦制造者分类
 
 > 原文：<https://review.firstround.com/a-taxonomy-of-troublemakers-for-those-navigating-difficult-colleagues>
 

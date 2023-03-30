@@ -1,4 +1,4 @@
-# 增强你的招聘机器——以下是如何|第一轮审查
+# 增强你的招聘机器——以下是如何
 
 > 原文：<https://review.firstround.com/turbocharge-your-recruiting-machine-heres-how>
 

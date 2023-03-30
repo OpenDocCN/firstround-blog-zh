@@ -1,4 +1,4 @@
-# 每次用这些面试问题雇佣一个表现最好的人|第一轮评审
+# 每次用这些面试问题雇佣一个表现最好的人
 
 > 原文：<https://review.firstround.com/hire-a-top-performer-every-time-with-these-interview-questions>
 

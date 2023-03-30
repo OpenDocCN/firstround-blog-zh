@@ -1,4 +1,4 @@
-# 创建和增强团队信任的 6 个必读书目|第一轮评估
+# 创建和增强团队信任的 6 个必读书目
 
 > 原文：<https://review.firstround.com/our-6-must-reads-for-creating-and-accelerating-trust-on-teams>
 

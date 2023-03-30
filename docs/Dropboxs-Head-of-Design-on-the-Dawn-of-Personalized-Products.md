@@ -1,4 +1,4 @@
-# Dropbox 的设计主管在个性化产品的黎明|第一轮审查
+# Dropbox 的设计主管在个性化产品的黎明
 
 > 原文：<https://review.firstround.com/Dropboxs-Head-of-Design-on-the-Dawn-of-Personalized-Products>
 

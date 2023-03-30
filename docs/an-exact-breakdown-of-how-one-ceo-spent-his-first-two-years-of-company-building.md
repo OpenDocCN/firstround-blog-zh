@@ -1,4 +1,4 @@
-# 一位首席执行官如何度过公司建设的前两年的详细分析|第一轮回顾
+# 一位首席执行官如何度过公司建设的前两年的详细分析
 
 > 原文：<https://review.firstround.com/an-exact-breakdown-of-how-one-ceo-spent-his-first-two-years-of-company-building>
 

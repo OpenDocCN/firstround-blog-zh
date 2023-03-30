@@ -1,4 +1,4 @@
-# 以下是如何运用同理心和数据建立包容性团队|第一轮评估
+# 以下是如何运用同理心和数据建立包容性团队
 
 > 原文：<https://review.firstround.com/heres-how-to-wield-empathy-and-data-to-build-an-inclusive-team>
 

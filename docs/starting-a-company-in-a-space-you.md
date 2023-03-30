@@ -1,4 +1,4 @@
-# 在你不擅长的领域创业——这位创始人分享了 6 条经验|第一轮回顾
+# 在你不擅长的领域创业——这位创始人分享了 6 条经验
 
 > 原文：<https://review.firstround.com/starting-a-company-in-a-space-you>
 

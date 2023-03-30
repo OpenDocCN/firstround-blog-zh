@@ -1,4 +1,4 @@
-# 正确销售运营的公司变革魔法|第一轮回顾
+# 正确销售运营的公司变革魔法
 
 > 原文：<https://review.firstround.com/the-company-changing-magic-of-sales-operations-done-right>
 

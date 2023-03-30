@@ -1,4 +1,4 @@
-# 关于增长的棘手问题的答案—在扩展 Eventbrite 的 50 亿美元以上增长引擎时了解到的|第一轮回顾
+# 关于增长的棘手问题的答案—在扩展 Eventbrite 的 50 亿美元以上增长引擎时了解到的
 
 > 原文：<https://review.firstround.com/answers-to-your-tough-questions-about-growth-learned-while-scaling-eventbrites-5b-growth-engine>
 

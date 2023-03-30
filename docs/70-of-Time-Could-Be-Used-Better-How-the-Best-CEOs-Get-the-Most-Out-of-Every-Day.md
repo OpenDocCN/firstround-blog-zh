@@ -1,4 +1,4 @@
-# 70%的时间可以更好地利用——最佳 CEO 如何充分利用每一天|第一轮回顾
+# 70%的时间可以更好地利用——最佳 CEO 如何充分利用每一天
 
 > 原文：<https://review.firstround.com/70-of-Time-Could-Be-Used-Better-How-the-Best-CEOs-Get-the-Most-Out-of-Every-Day>
 

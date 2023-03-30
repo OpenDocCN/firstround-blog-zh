@@ -1,4 +1,4 @@
-# 这家初创公司建立了内部工具来推动主要增长，这是他们的方法|第一轮审查
+# 这家初创公司建立了内部工具来推动主要增长，这是他们的方法
 
 > 原文：<https://review.firstround.com/This-Startup-Built-Internal-Tools-to-Fuel-Major-Growth-Heres-Their-Approach>
 

@@ -1,4 +1,4 @@
-# 推动这位硅谷顶级经理人职业生涯的基本问题|第一轮回顾
+# 推动这位硅谷顶级经理人职业生涯的基本问题
 
 > 原文：<https://review.firstround.com/the-essential-questions-that-have-powered-this-top-silicon-valley-managers-career>
 

@@ -1,4 +1,4 @@
-# 简单的数字可以改变你的招聘方式|第一轮评估
+# 简单的数字可以改变你的招聘方式
 
 > 原文：<https://review.firstround.com/the-simple-numbers-that-could-change-how-you-hire>
 

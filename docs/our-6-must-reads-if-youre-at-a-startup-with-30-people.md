@@ -1,4 +1,4 @@
-# 如果你在一家 30 人以上的初创公司，我们的 6 个必读项目|第一轮评估
+# 如果你在一家 30 人以上的初创公司，我们的 6 个必读项目
 
 > 原文：<https://review.firstround.com/our-6-must-reads-if-youre-at-a-startup-with-30-people>
 

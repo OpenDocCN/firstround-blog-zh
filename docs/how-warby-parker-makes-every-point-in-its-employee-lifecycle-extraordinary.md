@@ -1,4 +1,4 @@
-# Warby Parker 如何让员工生命周期中的每一点都与众不同|第一轮回顾
+# Warby Parker 如何让员工生命周期中的每一点都与众不同
 
 > 原文：<https://review.firstround.com/how-warby-parker-makes-every-point-in-its-employee-lifecycle-extraordinary>
 

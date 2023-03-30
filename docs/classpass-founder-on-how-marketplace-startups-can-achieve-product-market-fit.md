@@ -1,4 +1,4 @@
-# “ClassPass”创始人谈市场初创企业如何实现产品/市场契合|第一轮回顾
+# “ClassPass”创始人谈市场初创企业如何实现产品/市场契合
 
 > 原文：<https://review.firstround.com/classpass-founder-on-how-marketplace-startups-can-achieve-product-market-fit>
 

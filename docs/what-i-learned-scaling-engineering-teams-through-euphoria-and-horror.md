@@ -1,4 +1,4 @@
-# 我从兴奋和恐惧中学到了什么|第一轮回顾
+# 我从兴奋和恐惧中学到了什么
 
 > 原文：<https://review.firstround.com/what-i-learned-scaling-engineering-teams-through-euphoria-and-horror>
 

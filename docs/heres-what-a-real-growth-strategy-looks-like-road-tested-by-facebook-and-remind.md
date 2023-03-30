@@ -1,4 +1,4 @@
-# 以下是真正的增长战略——经过脸书和 Remind 的检验|第一轮回顾
+# 以下是真正的增长战略——经过脸书和 Remind 的检验
 
 > 原文：<https://review.firstround.com/heres-what-a-real-growth-strategy-looks-like-road-tested-by-facebook-and-remind>
 

@@ -1,4 +1,4 @@
-# 我在亚马逊作战室的 37 分钟的发射课程|第一轮评论
+# 我在亚马逊作战室的 37 分钟的发射课程
 
 > 原文：<https://review.firstround.com/my-launch-lessons-from-37-minutes-in-an-amazon-war-room>
 

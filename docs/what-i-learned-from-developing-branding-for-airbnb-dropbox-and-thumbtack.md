@@ -1,4 +1,4 @@
-# 我从 Airbnb、Dropbox 和 Thumbtack 的品牌发展中学到了什么|第一轮评论
+# 我从 Airbnb、Dropbox 和 Thumbtack 的品牌发展中学到了什么
 
 > 原文：<https://review.firstround.com/what-i-learned-from-developing-branding-for-airbnb-dropbox-and-thumbtack>
 

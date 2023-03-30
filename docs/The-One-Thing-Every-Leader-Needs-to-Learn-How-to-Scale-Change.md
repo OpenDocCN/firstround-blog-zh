@@ -1,4 +1,4 @@
-# 每个领导者都需要学习的一件事:如何衡量变化|第一轮回顾
+# 每个领导者都需要学习的一件事:如何衡量变化
 
 > 原文：<https://review.firstround.com/The-One-Thing-Every-Leader-Needs-to-Learn-How-to-Scale-Change>
 

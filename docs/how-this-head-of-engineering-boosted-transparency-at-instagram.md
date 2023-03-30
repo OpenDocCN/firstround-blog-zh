@@ -1,4 +1,4 @@
-# 这位工程主管如何提高 Instagram 的透明度|首轮审查
+# 这位工程主管如何提高 Instagram 的透明度
 
 > 原文：<https://review.firstround.com/how-this-head-of-engineering-boosted-transparency-at-instagram>
 

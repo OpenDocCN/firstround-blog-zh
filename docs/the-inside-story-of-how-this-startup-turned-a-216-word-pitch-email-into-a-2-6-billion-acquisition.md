@@ -1,4 +1,4 @@
-# 这家初创公司如何将一封 216 字的推介电子邮件变成 26 亿美元收购的内幕|首轮评论
+# 这家初创公司如何将一封 216 字的推介电子邮件变成 26 亿美元收购的内幕
 
 > 原文：<https://review.firstround.com/the-inside-story-of-how-this-startup-turned-a-216-word-pitch-email-into-a-2-6-billion-acquisition>
 

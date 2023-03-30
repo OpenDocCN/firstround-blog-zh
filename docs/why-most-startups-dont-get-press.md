@@ -1,4 +1,4 @@
-# 为什么大多数创业公司没有“获得”媒体|第一轮评论
+# 为什么大多数创业公司没有“获得”媒体
 
 > 原文：<https://review.firstround.com/why-most-startups-dont-get-press>
 

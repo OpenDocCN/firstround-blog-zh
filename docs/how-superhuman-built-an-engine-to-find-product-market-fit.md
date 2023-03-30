@@ -1,4 +1,4 @@
-# 超人如何制造引擎来找到适合市场的产品|第一轮评论
+# 超人如何制造引擎来找到适合市场的产品
 
 > 原文：<https://review.firstround.com/how-superhuman-built-an-engine-to-find-product-market-fit>
 

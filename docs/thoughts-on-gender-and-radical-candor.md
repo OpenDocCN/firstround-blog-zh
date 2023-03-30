@@ -1,4 +1,4 @@
-# 关于性别和激进坦诚的思考|第一轮评论
+# 关于性别和激进坦诚的思考
 
 > 原文：<https://review.firstround.com/thoughts-on-gender-and-radical-candor>
 

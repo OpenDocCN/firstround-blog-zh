@@ -1,4 +1,4 @@
-# 正确对待数据科学—回答您最常见的问题|第一轮回顾
+# 正确对待数据科学—回答您最常见的问题
 
 > 原文：<https://review.firstround.com/doing-data-science-right-your-most-common-questions-answered>
 

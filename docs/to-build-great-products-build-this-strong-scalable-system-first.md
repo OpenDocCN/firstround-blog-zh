@@ -1,4 +1,4 @@
-# 要构建优秀的产品，首先构建这个强大的、可扩展的系统|第一轮评审
+# 要构建优秀的产品，首先构建这个强大的、可扩展的系统
 
 > 原文：<https://review.firstround.com/to-build-great-products-build-this-strong-scalable-system-first>
 

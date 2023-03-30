@@ -1,4 +1,4 @@
-# 要在销售中取得成功，你需要改变思维和说话方式的 10 种方法|第一轮评估
+# 要在销售中取得成功，你需要改变思维和说话方式的 10 种方法
 
 > 原文：<https://review.firstround.com/10-ways-you-need-to-change-how-you-think-and-talk-to-succeed-at-sales>
 

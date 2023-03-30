@@ -1,4 +1,4 @@
-# 从闲聊和交流中切入——从 130 多次晚宴、峰会和沙龙中吸取的经验教训|第一轮回顾
+# 从闲聊和交流中切入——从 130 多次晚宴、峰会和沙龙中吸取的经验教训
 
 > 原文：<https://review.firstround.com/cut-through-the-small-talk-and-connect-lessons-from-130-dinners-summits-and-salons>
 

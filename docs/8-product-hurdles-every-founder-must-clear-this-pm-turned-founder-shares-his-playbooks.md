@@ -1,4 +1,4 @@
-# 每个创始人都必须清除的 8 个产品障碍——这位 PM 出身的创始人分享了他的剧本|首轮评论
+# 每个创始人都必须清除的 8 个产品障碍——这位 PM 出身的创始人分享了他的剧本
 
 > 原文：<https://review.firstround.com/8-product-hurdles-every-founder-must-clear-this-pm-turned-founder-shares-his-playbooks>
 

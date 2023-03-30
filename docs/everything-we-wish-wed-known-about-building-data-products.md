@@ -1,4 +1,4 @@
-# 我们希望了解的关于构建数据产品的一切|第一轮回顾
+# 我们希望了解的关于构建数据产品的一切
 
 > 原文：<https://review.firstround.com/everything-we-wish-wed-known-about-building-data-products>
 

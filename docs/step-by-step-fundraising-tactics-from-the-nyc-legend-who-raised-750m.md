@@ -1,4 +1,4 @@
-# 来自纽约传奇人物的一步一步的筹款策略，筹集了 7.5 亿美元|第一轮评论
+# 来自纽约传奇人物的一步一步的筹款策略，筹集了 7.5 亿美元
 
 > 原文：<https://review.firstround.com/step-by-step-fundraising-tactics-from-the-nyc-legend-who-raised-750m>
 

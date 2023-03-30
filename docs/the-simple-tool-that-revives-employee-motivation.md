@@ -1,4 +1,4 @@
-# 激发员工积极性的简单工具|第一轮评估
+# 激发员工积极性的简单工具
 
 > 原文：<https://review.firstround.com/the-simple-tool-that-revives-employee-motivation>
 

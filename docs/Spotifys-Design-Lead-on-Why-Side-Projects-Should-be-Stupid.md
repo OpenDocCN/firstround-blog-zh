@@ -1,4 +1,4 @@
-# Spotify 的设计领导关于为什么边项目应该是愚蠢的|第一轮审查
+# Spotify 的设计领导关于为什么边项目应该是愚蠢的
 
 > 原文：<https://review.firstround.com/Spotifys-Design-Lead-on-Why-Side-Projects-Should-be-Stupid>
 

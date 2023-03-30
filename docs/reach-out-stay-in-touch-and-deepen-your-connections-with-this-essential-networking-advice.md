@@ -1,4 +1,4 @@
-# 通过这条重要的社交建议|第一轮审核，拓展人脉，保持联系，加深联系
+# 通过这条重要的社交建议，拓展人脉，保持联系，加深联系
 
 > 原文：<https://review.firstround.com/reach-out-stay-in-touch-and-deepen-your-connections-with-this-essential-networking-advice>
 

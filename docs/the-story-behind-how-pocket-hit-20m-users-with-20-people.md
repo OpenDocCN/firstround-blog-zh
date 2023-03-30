@@ -1,4 +1,4 @@
-# Pocket 如何用 20 个人赢得 2000 万用户背后的故事|第一轮评论
+# Pocket 如何用 20 个人赢得 2000 万用户背后的故事
 
 > 原文：<https://review.firstround.com/the-story-behind-how-pocket-hit-20m-users-with-20-people>
 

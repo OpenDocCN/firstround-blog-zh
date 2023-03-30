@@ -1,4 +1,4 @@
-# Codecademy 的扎克·西姆斯在第一次筹集 1250 万美元的课程上|首轮评论
+# Codecademy 的扎克·西姆斯在第一次筹集 1250 万美元的课程上
 
 > 原文：<https://review.firstround.com/Zach-Sims-of-Codecademy-on-lessons-in-raising-125-million-for-the-first-time>
 

@@ -1,4 +1,4 @@
-# 创业公司将 CX 放在核心位置的案例|第一轮回顾
+# 创业公司将 CX 放在核心位置的案例
 
 > 原文：<https://review.firstround.com/the-case-for-startups-to-put-cx-at-their-core>
 

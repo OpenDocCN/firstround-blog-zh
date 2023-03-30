@@ -1,4 +1,4 @@
-# 这家初创公司在 6 个月内在 30 个城市开业，以下是他们的做法|第一轮回顾
+# 这家初创公司在 6 个月内在 30 个城市开业，以下是他们的做法
 
 > 原文：<https://review.firstround.com/This-Startup-Launched-in-30-Cities-in-6-Months-Heres-How-They-Did-It>
 

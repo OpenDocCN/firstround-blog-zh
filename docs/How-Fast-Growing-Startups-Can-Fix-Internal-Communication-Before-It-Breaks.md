@@ -1,4 +1,4 @@
-# 快速成长的初创公司如何在内部沟通中断前修复它|第一轮回顾
+# 快速成长的初创公司如何在内部沟通中断前修复它
 
 > 原文：<https://review.firstround.com/How-Fast-Growing-Startups-Can-Fix-Internal-Communication-Before-It-Breaks>
 

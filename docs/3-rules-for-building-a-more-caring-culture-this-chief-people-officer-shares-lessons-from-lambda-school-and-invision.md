@@ -1,4 +1,4 @@
-# 建立更关爱文化的 3 条规则——这位首席人事官分享了 Lambda School & InVision |第一轮评估的经验
+# 建立更关爱文化的 3 条规则——这位首席人事官分享了 Lambda School & InVision 的经验
 
 > 原文：<https://review.firstround.com/3-rules-for-building-a-more-caring-culture-this-chief-people-officer-shares-lessons-from-lambda-school-and-invision>
 

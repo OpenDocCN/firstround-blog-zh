@@ -1,4 +1,4 @@
-# 如何赢得作为第一次创始人，一个德鲁休斯顿宣言|第一轮审查
+# 如何赢得作为第一次创始人，一个德鲁休斯顿宣言
 
 > 原文：<https://review.firstround.com/How-to-Win-as-a-First-Time-Founder-a-Drew-Houston-Manifesto>
 

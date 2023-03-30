@@ -1,4 +1,4 @@
-# Betterment 测试了三个绩效管理系统，因此您不必|进行第一轮评审
+# Betterment 测试了三个绩效管理系统，因此您不必
 
 > 原文：<https://review.firstround.com/betterment-tested-three-performance-management-systems-so-you-dont-have-to>
 

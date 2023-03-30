@@ -1,4 +1,4 @@
-# 要建立一支出色的销售团队，首先从这里开始|第一轮评估
+# 要建立一支出色的销售团队，首先从这里开始
 
 > 原文：<https://review.firstround.com/To-Build-An-Amazing-Sales-Team-Start-Here-First>
 

@@ -1,4 +1,4 @@
-# 在为时已晚之前，创始人需要了解哪些关于建立管理团队的知识|第一轮回顾
+# 在为时已晚之前，创始人需要了解哪些关于建立管理团队的知识
 
 > 原文：<https://review.firstround.com/What-founders-need-to-know-about-building-management-teams-before-its-too-late>
 

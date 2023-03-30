@@ -1,4 +1,4 @@
-# 我在脸书、Twitter 和 Wealthfront 工作期间不可或缺的增长框架|第一轮回顾
+# 我在脸书、Twitter 和 Wealthfront 工作期间不可或缺的增长框架
 
 > 原文：<https://review.firstround.com/indispensable-growth-frameworks-from-my-years-at-facebook-twitter-and-wealthfront>
 

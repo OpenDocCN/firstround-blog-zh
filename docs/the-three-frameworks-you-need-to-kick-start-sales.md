@@ -1,4 +1,4 @@
-# 启动销售所需的三个框架|第一轮回顾
+# 启动销售所需的三个框架
 
 > 原文：<https://review.firstround.com/the-three-frameworks-you-need-to-kick-start-sales>
 

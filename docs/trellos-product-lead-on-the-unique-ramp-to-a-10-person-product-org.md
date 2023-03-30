@@ -1,4 +1,4 @@
-# Trello 的产品领先优势独树一帜，成为 10 人产品组织|首轮评审
+# Trello 的产品领先优势独树一帜，成为 10 人产品组织
 
 > 原文：<https://review.firstround.com/trellos-product-lead-on-the-unique-ramp-to-a-10-person-product-org>
 

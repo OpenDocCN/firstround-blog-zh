@@ -1,4 +1,4 @@
-# 弹性产品团队的力量——Airbnb 首个关于如何建立自己团队的项目经理|第一轮回顾
+# 弹性产品团队的力量——Airbnb 首个关于如何建立自己团队的项目经理
 
 > 原文：<https://review.firstround.com/the-power-of-the-elastic-product-team-airbnbs-first-pm-on-how-to-build-your-own>
 

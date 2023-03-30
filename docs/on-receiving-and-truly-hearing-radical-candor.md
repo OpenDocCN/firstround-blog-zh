@@ -1,4 +1,4 @@
-# 接受(并真正听到)彻底的坦诚|第一轮审核
+# 接受(并真正听到)彻底的坦诚
 
 > 原文：<https://review.firstround.com/on-receiving-and-truly-hearing-radical-candor>
 

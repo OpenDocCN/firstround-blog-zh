@@ -1,4 +1,4 @@
-# Square 以此公关策略从小处着手，赢得了巨大成功|第一轮评估
+# Square 以此公关策略从小处着手，赢得了巨大成功
 
 > 原文：<https://review.firstround.com/Square-Started-Small-and-Won-Big-with-This-PR-Strategy>
 

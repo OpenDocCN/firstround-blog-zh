@@ -1,4 +1,4 @@
-# 德鲁·休斯顿从黑客到高速增长的首席执行官的转变|第一轮回顾
+# 德鲁·休斯顿从黑客到高速增长的首席执行官的转变
 
 > 原文：<https://review.firstround.com/Drew-Houstons-morph-from-hacker-to-hyper-growth-CEO>
 

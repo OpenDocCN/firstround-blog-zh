@@ -1,4 +1,4 @@
-# SoundCloud 如何在 4 个时区的 4 个办公室保持沟通|第一轮回顾
+# SoundCloud 如何在 4 个时区的 4 个办公室保持沟通
 
 > 原文：<https://review.firstround.com/how-soundcloud-keeps-communication-flowing-across-4-offices-in-4-time-zones>
 

@@ -1,4 +1,4 @@
-# 经受危机的情感风暴——个人贡献者和管理者的战术指南|第一轮回顾
+# 经受危机的情感风暴——个人贡献者和管理者的战术指南
 
 > 原文：<https://review.firstround.com/weathering-the-emotional-storms-of-a-crisis-a-tactical-guide-for-individual-contributors-and-managers>
 

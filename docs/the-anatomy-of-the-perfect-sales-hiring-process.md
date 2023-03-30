@@ -1,4 +1,4 @@
-# 完美销售招聘流程剖析|第一轮回顾
+# 完美销售招聘流程剖析
 
 > 原文：<https://review.firstround.com/the-anatomy-of-the-perfect-sales-hiring-process>
 

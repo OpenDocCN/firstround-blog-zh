@@ -1,4 +1,4 @@
-# 从高管角色到董事会席位——来自 Zendesk、Guru、易贝等公司的创业高管的经验教训|第一轮回顾
+# 从高管角色到董事会席位——来自 Zendesk、Guru、易贝等公司的创业高管的经验教训
 
 > 原文：<https://review.firstround.com/from-exec-roles-to-board-seats-lessons-for-the-startup-c-suite-from-zendesk-guru-ebay-and-more>
 

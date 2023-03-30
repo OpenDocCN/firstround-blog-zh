@@ -1,4 +1,4 @@
-# 我们磨砺注意力和管理时间的 6 篇必读文章|第一轮回顾
+# 我们磨砺注意力和管理时间的 6 篇必读文章
 
 > 原文：<https://review.firstround.com/our-6-must-reads-for-honing-focus-and-managing-your-time>
 

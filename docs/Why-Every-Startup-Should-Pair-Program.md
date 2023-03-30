@@ -1,4 +1,4 @@
-# 为什么每个创业公司都应该结对计划|第一轮评审
+# 为什么每个创业公司都应该结对计划
 
 > 原文：<https://review.firstround.com/Why-Every-Startup-Should-Pair-Program>
 

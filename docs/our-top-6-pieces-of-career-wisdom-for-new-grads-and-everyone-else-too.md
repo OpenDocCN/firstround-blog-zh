@@ -1,4 +1,4 @@
-# 我们给新毕业生(和其他人)的六大职业智慧|第一轮回顾
+# 我们给新毕业生(和其他人)的六大职业智慧
 
 > 原文：<https://review.firstround.com/our-top-6-pieces-of-career-wisdom-for-new-grads-and-everyone-else-too>
 

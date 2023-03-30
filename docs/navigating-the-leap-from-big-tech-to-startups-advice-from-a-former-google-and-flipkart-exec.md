@@ -1,4 +1,4 @@
-# 导航从大型科技公司到创业公司的飞跃——来自前谷歌和 Flipkart 高管的建议|第一轮回顾
+# 导航从大型科技公司到创业公司的飞跃——来自前谷歌和 Flipkart 高管的建议
 
 > 原文：<https://review.firstround.com/navigating-the-leap-from-big-tech-to-startups-advice-from-a-former-google-and-flipkart-exec>
 

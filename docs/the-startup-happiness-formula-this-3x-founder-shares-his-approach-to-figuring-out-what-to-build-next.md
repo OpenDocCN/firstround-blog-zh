@@ -1,4 +1,4 @@
-# 创业快乐公式——这位 3X 创始人分享了他计算下一步要做什么的方法|第一轮回顾
+# 创业快乐公式——这位 3X 创始人分享了他计算下一步要做什么的方法
 
 > 原文：<https://review.firstround.com/the-startup-happiness-formula-this-3x-founder-shares-his-approach-to-figuring-out-what-to-build-next>
 

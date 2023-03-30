@@ -1,4 +1,4 @@
-# 创始人写作指南|第一轮评论
+# 创始人写作指南
 
 > 原文：<https://review.firstround.com/a-founders-guide-to-writing-well>
 

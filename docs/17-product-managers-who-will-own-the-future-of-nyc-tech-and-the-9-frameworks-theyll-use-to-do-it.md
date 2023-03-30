@@ -1,4 +1,4 @@
-# 将掌控纽约科技未来的 17 位产品经理，以及他们将使用的 9 个框架|第一轮评审
+# 将掌控纽约科技未来的 17 位产品经理，以及他们将使用的 9 个框架
 
 > 原文：<https://review.firstround.com/17-product-managers-who-will-own-the-future-of-nyc-tech-and-the-9-frameworks-theyll-use-to-do-it>
 

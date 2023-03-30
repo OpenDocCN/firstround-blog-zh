@@ -1,4 +1,4 @@
-# 用皮克斯总裁的这些建议激发创造力|第一轮评审
+# 用皮克斯总裁的这些建议激发创造力
 
 > 原文：<https://review.firstround.com/Spark-Creativity-with-These-Tips-from-Pixars-President>
 

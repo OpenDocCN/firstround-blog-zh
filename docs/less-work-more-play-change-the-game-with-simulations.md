@@ -1,4 +1,4 @@
-# 更少的工作，更多的娱乐:用模拟改变游戏|第一轮回顾
+# 更少的工作，更多的娱乐:用模拟改变游戏
 
 > 原文：<https://review.firstround.com/less-work-more-play-change-the-game-with-simulations>
 

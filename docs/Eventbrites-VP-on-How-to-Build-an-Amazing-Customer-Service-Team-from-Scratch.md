@@ -1,4 +1,4 @@
-# Eventbrite 从头开始打造卓越客户服务的剧本|第一轮回顾
+# Eventbrite 从头开始打造卓越客户服务的剧本
 
 > 原文：<https://review.firstround.com/Eventbrites-VP-on-How-to-Build-an-Amazing-Customer-Service-Team-from-Scratch>
 

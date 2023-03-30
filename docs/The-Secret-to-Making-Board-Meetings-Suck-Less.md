@@ -1,4 +1,4 @@
-# 让董事会会议不那么糟糕的秘密|第一轮回顾
+# 让董事会会议不那么糟糕的秘密
 
 > 原文：<https://review.firstround.com/The-Secret-to-Making-Board-Meetings-Suck-Less>
 

@@ -1,4 +1,4 @@
-# 几乎扼杀这位创始人创业的 5 个早期错误——以及他是如何生存下来的|第一轮回顾
+# 几乎扼杀这位创始人创业的 5 个早期错误——以及他是如何生存下来的
 
 > 原文：<https://review.firstround.com/The-5-Early-Mistakes-That-Almost-Killed-This-Founders-Startup-and-How-He-Survived>
 

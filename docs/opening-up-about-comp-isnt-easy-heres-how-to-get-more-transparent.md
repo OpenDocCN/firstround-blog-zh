@@ -1,4 +1,4 @@
-# 公开薪酬并不容易——以下是如何变得更加透明|第一轮评估
+# 公开薪酬并不容易——以下是如何变得更加透明
 
 > 原文：<https://review.firstround.com/opening-up-about-comp-isnt-easy-heres-how-to-get-more-transparent>
 

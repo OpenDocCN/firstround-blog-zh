@@ -1,4 +1,4 @@
-# 交付软件的正确方式|第一轮评审
+# 交付软件的正确方式
 
 > 原文：<https://review.firstround.com/the-right-way-to-ship-software>
 

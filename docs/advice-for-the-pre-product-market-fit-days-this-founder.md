@@ -1,4 +1,4 @@
-# 产品上市前/市场适应期的建议——这是创始人有目的地转向的剧本|第一轮回顾
+# 产品上市前/市场适应期的建议——这是创始人有目的地转向的剧本
 
 > 原文：<https://review.firstround.com/advice-for-the-pre-product-market-fit-days-this-founder>
 

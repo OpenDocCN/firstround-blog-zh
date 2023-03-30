@@ -1,4 +1,4 @@
-# Leslie 的指南针:走向市场战略的框架|第一轮回顾
+# Leslie 的指南针:走向市场战略的框架
 
 > 原文：<https://review.firstround.com/leslies-compass-a-framework-for-go-to-market-strategy>
 

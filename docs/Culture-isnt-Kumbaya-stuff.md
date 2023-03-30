@@ -1,4 +1,4 @@
-# 文化不是 Kumbaya 的东西|第一轮审查
+# 文化不是 Kumbaya 的东西
 
 > 原文：<https://review.firstround.com/Culture-isnt-Kumbaya-stuff>
 

@@ -1,4 +1,4 @@
-# 当谈到市场领导地位时，成为大猩猩|第一轮审查
+# 当谈到市场领导地位时，成为大猩猩
 
 > 原文：<https://review.firstround.com/When-it-Comes-to-Market-Leadership-Be-the-Gorilla>
 

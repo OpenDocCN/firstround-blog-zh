@@ -1,4 +1,4 @@
-# 放松约束的必要实践|第一轮复习
+# 放松约束的必要实践
 
 > 原文：<https://review.firstround.com/the-imperative-practice-of-relaxing-constraints>
 

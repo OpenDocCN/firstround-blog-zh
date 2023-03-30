@@ -1,4 +1,4 @@
-# Instagram 联合创始人 Mike Krieger 如何将其工程组织从 0 人发展到 300 人|首轮评论
+# Instagram 联合创始人 Mike Krieger 如何将其工程组织从 0 人发展到 300 人
 
 > 原文：<https://review.firstround.com/how-instagram-co-founder-mike-krieger-took-its-engineering-org-from-0-to-300-people>
 

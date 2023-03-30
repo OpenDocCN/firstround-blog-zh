@@ -1,4 +1,4 @@
-# 如何在每个阶段打造您的产品团队，从产品/市场前适应到快速发展|第一轮评审
+# 如何在每个阶段打造您的产品团队，从产品/市场前适应到快速发展
 
 > 原文：<https://review.firstround.com/how-to-craft-your-product-team-at-every-stage-from-pre-product-market-fit-to-hypergrowth>
 

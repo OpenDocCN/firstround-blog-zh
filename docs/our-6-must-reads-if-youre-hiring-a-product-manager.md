@@ -1,4 +1,4 @@
-# 如果你要招聘产品经理，我们的 6 个必读内容|第一轮评估
+# 如果你要招聘产品经理，我们的 6 个必读内容
 
 > 原文：<https://review.firstround.com/our-6-must-reads-if-youre-hiring-a-product-manager>
 

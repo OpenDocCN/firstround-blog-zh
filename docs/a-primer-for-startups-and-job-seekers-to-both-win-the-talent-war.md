@@ -1,4 +1,4 @@
-# 创业公司和求职者赢得人才大战的入门指南|首轮评论
+# 创业公司和求职者赢得人才大战的入门指南
 
 > 原文：<https://review.firstround.com/a-primer-for-startups-and-job-seekers-to-both-win-the-talent-war>
 

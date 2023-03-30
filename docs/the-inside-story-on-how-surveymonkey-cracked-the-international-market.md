@@ -1,4 +1,4 @@
-# SurveyMonkey 如何打入国际市场的内幕|首轮评论
+# SurveyMonkey 如何打入国际市场的内幕
 
 > 原文：<https://review.firstround.com/the-inside-story-on-how-surveymonkey-cracked-the-international-market>
 

@@ -1,4 +1,4 @@
-# OpenTable 首席执行官谈如何在扩大规模时避免公司崩溃|第一轮回顾
+# OpenTable 首席执行官谈如何在扩大规模时避免公司崩溃
 
 > 原文：<https://review.firstround.com/opentables-ceo-on-how-to-dodge-company-breakdown-as-you-scale>
 

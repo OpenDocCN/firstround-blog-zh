@@ -1,4 +1,4 @@
-# 创始人应对危机的实地指南——来自衰退时期领导人、投资者和现任首席执行官的建议|第一轮回顾
+# 创始人应对危机的实地指南——来自衰退时期领导人、投资者和现任首席执行官的建议
 
 > 原文：<https://review.firstround.com/the-founders-field-guide-for-navigating-this-crisis-advice-from-recession-era-leaders-investors-and-ceos-currently-at-the-helm>
 

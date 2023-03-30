@@ -1,4 +1,4 @@
-# Slack 的第一位产品经理讲述如何让反馈发挥作用|第一轮评估
+# Slack 的第一位产品经理讲述如何让反馈发挥作用
 
 > 原文：<https://review.firstround.com/slacks-first-product-manager-on-how-to-make-a-firehose-of-feedback-useful>
 

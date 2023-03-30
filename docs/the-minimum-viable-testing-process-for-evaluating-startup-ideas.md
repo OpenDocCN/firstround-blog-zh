@@ -1,4 +1,4 @@
-# 评估创业想法的最低可行测试流程|第一轮评审
+# 评估创业想法的最低可行测试流程
 
 > 原文：<https://review.firstround.com/the-minimum-viable-testing-process-for-evaluating-startup-ideas>
 

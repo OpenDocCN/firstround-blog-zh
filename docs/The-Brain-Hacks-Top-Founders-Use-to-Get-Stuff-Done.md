@@ -1,4 +1,4 @@
-# 顶级创始人用来完成工作的头脑风暴|第一轮回顾
+# 顶级创始人用来完成工作的头脑风暴
 
 > 原文：<https://review.firstround.com/The-Brain-Hacks-Top-Founders-Use-to-Get-Stuff-Done>
 

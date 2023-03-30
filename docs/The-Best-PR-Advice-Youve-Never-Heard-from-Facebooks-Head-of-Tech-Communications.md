@@ -1,4 +1,4 @@
-# 你从未听过的最好的公关建议——来自脸书的技术交流主管|第一轮评论
+# 你从未听过的最好的公关建议——来自脸书的技术交流主管
 
 > 原文：<https://review.firstround.com/The-Best-PR-Advice-Youve-Never-Heard-from-Facebooks-Head-of-Tech-Communications>
 

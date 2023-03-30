@@ -1,4 +1,4 @@
-# 年度计划正在扼杀你的成长——试试这个计划|第一轮回顾
+# 年度计划正在扼杀你的成长——试试这个计划
 
 > 原文：<https://review.firstround.com/Annual-Planning-is-Killing-Your-Growth-Try-This-Instead>
 

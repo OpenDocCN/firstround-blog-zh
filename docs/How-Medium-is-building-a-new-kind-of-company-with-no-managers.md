@@ -1,4 +1,4 @@
-# 如何打造一家没有经理的新型公司|第一轮回顾
+# 如何打造一家没有经理的新型公司
 
 > 原文：<https://review.firstround.com/How-Medium-is-building-a-new-kind-of-company-with-no-managers>
 

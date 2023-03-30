@@ -1,4 +1,4 @@
-# 产品定价的 6 个必读书目|第一轮评论
+# 产品定价的 6 个必读书目
 
 > 原文：<https://review.firstround.com/our-6-must-reads-on-pricing-a-product>
 

@@ -1,4 +1,4 @@
-# 史蒂夫·布兰克的建议让你在高速增长中生存下来|第一轮回顾
+# 史蒂夫·布兰克的建议让你在高速增长中生存下来
 
 > 原文：<https://review.firstround.com/Steve-Blank-on>
 

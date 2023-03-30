@@ -1,4 +1,4 @@
-# 这种文化甲板为世界上最艰难的工作提供动力|第一轮审查
+# 这种文化甲板为世界上最艰难的工作提供动力
 
 > 原文：<https://review.firstround.com/This-Culture-Deck-Powers-the-Worlds-Toughest-Work>
 
